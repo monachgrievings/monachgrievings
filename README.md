@@ -7,4 +7,4 @@
 
 [ask me questions here!](https://monachgrievings.atabook.org)
            .           .       [about me!](https://monchagrievings.straw.page) 
-           **Hypersharing selfshipper, in college for arts and 2D animations.**
+
