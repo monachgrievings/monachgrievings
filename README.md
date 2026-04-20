@@ -19,7 +19,7 @@
 
 . . . 
 
-**. ⚠︎ DNI ┆ ANTI-RECOVERY!!!!, Basic CRITERIA, RADQUEERS!!!, DARKSHIPPERS/DEAD DOVE!!, Political figure ponies, Forsaken supporters, Helluvaboss/Hazbinhotel, Grace/Pressure cosplayers, problematic myth cosplayers/supporters, "blackwashing is real", Problematic artist supporters, miHoYo fans/supporters, doom by fate supporters, problematic minecraft smp cosplayers.**
+**. ⚠︎ DNI ┆ ANTI-RECOVERY!!!!, Basic CRITERIA, RADQUEERS!!!, DARKSHIPPERS/DEAD DOVE!!, Political figure ponies, Forsaken supporters, guts and blackpowder cosplayers, Helluvaboss/Hazbinhotel, Grace/Pressure cosplayers, problematic myth cosplayers/supporters, "blackwashing is real", Problematic artist supporters, miHoYo fans/supporters, doom by fate supporters, problematic minecraft smp cosplayers.**
 
 [ask me questions here!](https://monachgrievings.atabook.org)
            .           .  
