@@ -14,7 +14,7 @@
 
 . ➤ please int: TADC, ROBLOXIA fandom, ULTRAKILL, MINECRAFT ARGS/WEBSERIES, Regretevator
 
-* . interact with caution ⧽ Sonic (including the exes/fanfic stuff) , MHA , Roblox ARGS/Webseries, 
+*. interact with caution ⧽ Sonic (including the exes/fanfic stuff) , MHA , Roblox ARGS/Webseries,*
 
 
 . . . 
