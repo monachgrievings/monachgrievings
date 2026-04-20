@@ -10,11 +10,11 @@
 
 . ➤ do not copy any of my skins! inspiration is okay. Anti-censorship lets all hug!
 
-. ➤ I do not do roleplays pubically or with strangers sorry!.
+. ➤ I do not do roleplays pubically or with strangers sorry!. 
 
 . ➤ please int: TADC, ROBLOXIA fandom, ULTRAKILL, MINECRAFT ARGS/WEBSERIES, Regretevator
 
-*. interact with caution ⧽ Sonic (including the exes/fanfic stuff) ,Dandys world, forsaken cosplayers (NOT SUPPORTERS), MHA , Roblox ARGS/Webseries,*
+*. interact with caution ⧽ Sonic (including the exes/fanfic stuff) ,Dandys world, MHA , Roblox ARGS/Webseries, JJK*
 
 
 . . . 
