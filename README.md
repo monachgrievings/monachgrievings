@@ -21,6 +21,7 @@
 
 **. ⚠︎ DNI ┆ ANTI-RECOVERY!!!!, Basic CRITERIA, RADQUEERS!!!, DARKSHIPPERS/DEAD DOVE!!, Political figure ponies, Forsaken supporters, guts and blackpowder cosplayers, Helluvaboss/Hazbinhotel, Grace/Pressure cosplayers, problematic myth cosplayers/supporters, "blackwashing is real", Problematic artist supporters, miHoYo fans/supporters, doom by fate supporters, problematic minecraft smp cosplayers.**
 
+*. ➤ I mean this in the most simplest terms ever, you'll be blocked forever if you're in my DNI thank you!*
 [ask me questions here!](https://monachgrievings.atabook.org)
            .           .  
 
