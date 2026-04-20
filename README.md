@@ -1,4 +1,4 @@
-## " baby.. be my pretty boy. " 
+## " Christian Zombie Vampire! " 
 
 ![image](https://64.media.tumblr.com/e9a3ac613be3fb59c732e3f6dd0d3fa7/b642b7de8fb4144a-37/s640x960/9d38821cef3bb9271a186c48a6604484380721d1.pnj)
 
@@ -8,17 +8,18 @@
 **Monach/Stu ⸝⸝⸝ sys.**
 *only friending those 16+ and above!*, I **block/hide freely** mainly areas in my DNIs.
 
-. ➤ do not copy any of my skins! inspiration is okay 
+. ➤ do not copy any of my skins! inspiration is okay. Anti-censorship lets all hug!
 
 . ➤ I do not do roleplays pubically or with strangers sorry!.
 
-. ➤ please int: TADC, ROBLOXIA fandom, ULTRAKILL, MHA, MINECRAFT ARGS/WEBSERIES, Regretevator
+. ➤ please int: TADC, ROBLOXIA fandom, ULTRAKILL, MINECRAFT ARGS/WEBSERIES, Regretevator
 
+* . interact with caution ⧽ Sonic (including the exes/fanfic stuff) , MHA , Roblox ARGS/Webseries, 
 
 
 . . . 
 
-**. ⚠︎ DNI ┆ ANTI-RECOVERY!!!!, Basic CRITERIA, Forsaken supporters, Helluvaboss/Hazbinhotel, Grace/Pressure cosplayers, "blackwashing is real", Problematic artist supporters, miHoYo fans/supporters**
+**. ⚠︎ DNI ┆ ANTI-RECOVERY!!!!, Basic CRITERIA, RADQUEERS!!!, DARKSHIPPERS/DEAD DOVE!!, Political figure ponies, Forsaken supporters, Helluvaboss/Hazbinhotel, Grace/Pressure cosplayers, problematic myth cosplayers/supporters, "blackwashing is real", Problematic artist supporters, miHoYo fans/supporters, doom by fate supporters, problematic minecraft smp cosplayers.**
 
 [ask me questions here!](https://monachgrievings.atabook.org)
            .           .  
