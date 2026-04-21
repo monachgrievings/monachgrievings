@@ -6,7 +6,9 @@
 
 
 **Monach/Stu ⸝⸝⸝ sys.**
-*only friending those 16+ and above!*, I **block/hide freely** mainly areas in my DNIs.
+*only friending those 16+ and above!*, I **block/hide freely** mainly areas in my DNIs
+
+***it is my freewill to do so. Do not become parasocial about my OWN boundaries.***
 
 . ➤ do not copy any of my skins! inspiration is okay. Anti-censorship lets all hug!
 
@@ -19,7 +21,7 @@
 
 . . . 
 
-**. ⚠︎ DNI ┆ ANTI-RECOVERY!!!!, Basic CRITERIA, RADQUEERS!!!, DARKSHIPPERS/DEAD DOVE!!, Political figure ponies, Forsaken supporters, guts and blackpowder cosplayers, Helluvaboss/Hazbinhotel, Grace/Pressure cosplayers, problematic myth cosplayers/supporters, "blackwashing is real", Problematic artist supporters, miHoYo fans/supporters, doom by fate supporters, problematic minecraft smp cosplayers.**
+**. ⚠︎ DNI ┆ ANTI-RECOVERY!!!!, Basic CRITERIA, RADQUEERS!!!, DARKSHIPPERS/DEAD DOVE!!, rightwinged/controversial Political figure ponies (even as a joke youre getting perma hidden.), TTC cosplayers, Forsaken supporters, guts and blackpowder cosplayers, Helluvaboss/Hazbinhotel, Grace/Pressure cosplayers, problematic myth cosplayers/supporters, "blackwashing is real", Problematic artist supporters, miHoYo fans/supporters, doom by fate supporters, problematic minecraft smp cosplayers.**
 
 *. ➤ I mean this in the most simplest terms ever, you'll be blocked forever if you're in my DNI thank you!*
 
