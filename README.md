@@ -14,7 +14,7 @@
 
 . ➤ I do not do roleplays pubically or with strangers sorry!. 
 
-. ➤ please int: TADC, ROBLOXIA fandom, ULTRAKILL, MINECRAFT ARGS/WEBSERIES, Regretevator
+. ➤ please int: Alan becker/AVA/AVM!!!, TADC, ROBLOXIA fandom, ULTRAKILL, MINECRAFT ARGS/WEBSERIES, Regretevator
 
 *. interact with caution ⧽ Sonic (including the exes/fanfic stuff) ,Dandys world, MHA , Roblox ARGS/Webseries, JJK*
 
