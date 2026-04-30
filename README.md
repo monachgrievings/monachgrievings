@@ -84,8 +84,15 @@ Know what you're supporting.
   <div align="center">
     <p>Drawing/Animating, Writing/journalling, lots of reading, researching/browsering archvial webseites. Watching documentaries/iceberg/theory videos</p>
   </div>
+  <details>
 <summary><ins>Music/Interests</ins></summary>
 <p>🎵 : Newdad, KMFDM, Arctic Monkies, And one, alternative rock in general and espesically creepy ambient music</p>
 <p>❤️ : Politics, Mecha/Robotics, psychology, character/reading analyasis, horror media's, history.</p>
- <div>
 
+  </div>
+</details>
+<br>
+
+## Blinkie + Stamp dump WIP
+<img src=  />
+ 
