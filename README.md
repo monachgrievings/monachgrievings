@@ -7,8 +7,14 @@
 
 # Monach / Stu / Grieth
 **I do not friend/follow people under 16+ sorry!**
+
+*heavily inspired off various other githubs!*
  
  <sub>Underlined are clickable</sub>
+ 
+ <sub> warning, have a attention span more than 3 minutes because these have a lot of information <sub>
+
+
 
  <details>
   <summary><ins>BYF/BYI</ins></summary>
@@ -20,6 +26,8 @@
     <p> Hypersharing selfshipper and soon-to-be animation college student at Sheridan.<p>
     <p>I have very STRONG beliefs and CONTROVERSIAL opinions. Anti-censorship, let's all hug!</p>
     <p> Medically diagnosed with Major depression (On prozac for this), Social Anxiety and C=PTSD</p>
+   <p> medically diagnosed with Dyslexia and High fun autism </p>
+   <p> suspected osdd-1a system and NPD <p>
     <p> I go by my boundaries strongly, same goes for any of my friends.</p>
     <p>  Partially known in the roblox arg/cosplaying community. I'm also a clothing/ugc maker! </p>
            <p> I say slurs I can reclaim alot. Do not be afraid to ever set your boundaries </p>
@@ -52,12 +60,32 @@
 Know what you're supporting.
 <p> Seildirectory fans (I have personal issues with the development team and popular members of it's community).</p>
 <p> Helluva/Hazbin Cosplayers/fans, TADC supporters, miHoYo fans/supporters, "blackwashing is real", whitewashers of any sorts.
-    <p> TCC supporters/cosplayers, roblox "drama/rant" account supporters.
+    <p> TCC supporters/cosplayers, roblox "drama/rant" account supporters, Spawnism (the cults) supporters.
+    <p> non sharing selfshippers (unless friend), I find you guys incredibly weird.</p>
+
+   ☣️ : sonic/exe/fanfic media's of sega franchise fans, Dandy's world fans, literally anyone on tiktok for more than an hour. 
+    
+   ☣️ : Roblox arg/webseries community in general, MHA/JJK or most of the anime community tbh.
+   
+   
   </div>
 </details>
 <br>
 
-           
-. [ask me questions here!](https://monachgrievings.atabook.org)
-           .           .  
+## Fandoms / Hobbies / Interests
+
+<details>
+  <summary><ins>Fandoms (In Order of most active)</ins></summary>
+<p>Robloxian lore/exploiters/Forums shit, AVA/AVM!!!!!, Minecraft webseries (aregect priority), sonic.exe's, horror games</p>
+<p>regretevator, dandys world, blocktales, phighting, CDarchives, prisonlife, PMM,</p>
+<p>Deltarune/Undertale, Ultrakill, Vocaloid/Fanloid/Talkloid, Brandonworks</p>
+ <details>
+  <summary><ins>Hobbies</ins></summary>
+  <div align="center">
+    <p>Drawing/Animating, Writing/journalling, lots of reading, researching/browsering archvial webseites. Watching documentaries/iceberg/theory videos</p>
+  </div>
+<summary><ins>Music/Interests</ins></summary>
+<p>🎵 : Newdad, KMFDM, Arctic Monkies, And one, alternative rock in general and espesically creepy ambient music</p>
+<p>❤️ : Politics, Mecha/Robotics, psychology, character/reading analyasis, horror media's, history.</p>
+ <div>
 
