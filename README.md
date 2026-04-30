@@ -1,4 +1,4 @@
-## WIP / REMAKING.
+## ...
 <p align="center">
  <img src="https://images-ext-1.discordapp.net/external/4dxWGlL-2fEds1QrNAIWdCs0cfskPvm9AlkvQeDoz8w/https/64.media.tumblr.com/e3f7195ddca3934eb0996c258240b9fc/7a866c19a339e7b5-bc/s2048x3072/fed58d6a5063bfc928c9fe4da08186aad2274109.gifv?format=webp&width=1860&height=434" />
 <div align="center">
