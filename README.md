@@ -53,7 +53,7 @@
   <div align="center">
     <p> 💢 : Basic Criteria (https://basic-dni.crd.co/) , Any of my old friends <p>
     <p> Righwinged/Controversial cosplayers/skins (even as a joke you're still getting hidden and blocked.) </p>
-    <p> Forsaken, Pressure, Grace , Doombyfate, Roblox myth cosplayers/supporters/fans, Guts and Blackpowder supporters. .</p>
+    <p> Forsaken, Pressure, Grace , Doombyfate, Roblox myth supporters, Guts and Blackpowder supporters. .</p>
      ( ^ I am partially close to victims of the forsaken/roblox myth situations. Do not try to downplay anything.)
      
              
