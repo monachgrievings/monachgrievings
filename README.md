@@ -97,5 +97,7 @@ Know what you're supporting.
 <br>
 
 ## Blinkie + Stamp dump WIP
-<img src=  />
+<img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_5918.gif/>
+<img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_5928.gif/> 
+
  
