@@ -68,6 +68,7 @@ Know what you're supporting.
    ☣️ : sonic/exe/fanfic media's of sega franchise fans, Dandy's world fans, literally anyone on tiktok for more than an hour. 
     
    ☣️ : Roblox arg/webseries community in general, MHA/JJK or most of the anime community tbh.
+   ☣️ : Forsaken/Grace cosplayers (i know people can be attached to the media, i am aswell. Just dont support the devs.)
    
    
   </div>
