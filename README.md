@@ -88,6 +88,7 @@ Know what you're supporting.
   <details>
 <summary><ins>Music/Interests</ins></summary>
 <p>🎵 : Newdad, KMFDM, Arctic Monkies, And one, alternative rock in general and espesically creepy ambient music</p>
+   <p> 🎵 : Speedcore/Breakcore, Heavy metal, Jack Stauber (moreso his older work)
 <p>❤️ : Politics, Mecha/Robotics, psychology, character/reading analyasis, horror media's, history.</p>
 
   </div>
