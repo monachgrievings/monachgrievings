@@ -1,6 +1,64 @@
 ## WIP / REMAKING.
+<p align="center">
+ <img src="https://images-ext-1.discordapp.net/external/4dxWGlL-2fEds1QrNAIWdCs0cfskPvm9AlkvQeDoz8w/https/64.media.tumblr.com/e3f7195ddca3934eb0996c258240b9fc/7a866c19a339e7b5-bc/s2048x3072/fed58d6a5063bfc928c9fe4da08186aad2274109.gifv?format=webp&width=1860&height=434" />
+<div align="center">
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Math+sans+italic+&duration=3000&pause=200&color=0F00F7&multiline=true&width=435&lines=%22+Wires+intertwine+and+Flesh+rots.%22)](https://git.io/typing-svg)
 
+# Monach / Stu / Grieth
+**I do not friend/follow people under 16+ sorry!**
+ 
+ <sub>Underlined are clickable</sub>
+
+ <details>
+  <summary><ins>BYF/BYI</ins></summary>
+
+  <div align="center">
+    <p> Hiya! :=D It's me Monach/Stu/Grieth. I am currently 18. </p>
+    <p> Blasian (trinidadian/Filipino) , born and raised in Canada. </p>
+ <p> Multifandom and Multimedia artist for 14 years </p>
+    <p> Hypersharing selfshipper and soon-to-be animation college student at Sheridan.<p>
+    <p>I have very STRONG beliefs and CONTROVERSIAL opinions. Anti-censorship, let's all hug!</p>
+    <p> Medically diagnosed with Major depression (On prozac for this), Social Anxiety and C=PTSD</p>
+    <p> I go by my boundaries strongly, same goes for any of my friends.</p>
+    <p>  Partially known in the roblox arg/cosplaying community. I'm also a clothing/ugc maker! </p>
+           <p> I say slurs I can reclaim alot. Do not be afraid to ever set your boundaries </p>
+             <p> or tell me to stop <p>
+  </div>
+</details>
+
+<details>
+  <summary><ins>Pony Town</ins></summary>
+
+  <div align="center">
+    <p> Abbrivated names: "DNC" : Do not copy , "DNIUF" : Do not interact unless friend , "IWC" : interact with care </p>
+    <p>I enjoy hangouts and crowds.<p>
+    <p> I block/hide people permanantly if I spot you in my DNI, no excuses. <p>
+    <p> I am fine with cuddling, hiding behind or hugs unless stated in my name! Shoutout to the cuddle/blanket ponies! </p><p>
+    <p> I am majority of the time afk decorating skins, please whisper in general to have any sort of response back.</p>
+    <p> Do NOT post any of my skins onto pinterest with or without credit. </p>
+    <p>Don't expect a response out of me all the time, but i will respond if i want to.<p>
+</details>
+<br>
+<details>
+  <summary><ins> 💢 DNI / ☣️interact with Caution </ins></summary>
+
+  <div align="center">
+    <p> 💢 : Basic Criteria (https://basic-dni.crd.co/) , Any of my old friends <p>
+    <p> Righwinged/Controversial cosplayers/skins (even as a joke you're still getting hidden and blocked.) </p>
+    <p> Forsaken, Pressure, Grace , Doombyfate, Roblox myth cosplayers/supporters/fans, Guts and Blackpowder supporters. .</p>
+     ( ^ I am partially close to victims of the forsaken/roblox myth situations. Do not try to downplay anything.)
+     
+             
+Know what you're supporting.
+<p> Seildirectory fans (I have personal issues with the development team and popular members of it's community).</p>
+<p> Helluva/Hazbin Cosplayers/fans, TADC supporters, miHoYo fans/supporters, "blackwashing is real", whitewashers of any sorts.
+    <p> TCC supporters/cosplayers, roblox "drama/rant" account supporters.
+  </div>
+</details>
+<br>
+
+           
 . [ask me questions here!](https://monachgrievings.atabook.org)
            .           .  
 
