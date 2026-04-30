@@ -32,12 +32,11 @@
 
   <div align="center">
     <p> Abbrivated names: "DNC" : Do not copy , "DNIUF" : Do not interact unless friend , "IWC" : interact with care </p>
-    <p>I enjoy hangouts and crowds.<p>
     <p> I block/hide people permanantly if I spot you in my DNI, no excuses. <p>
     <p> I am fine with cuddling, hiding behind or hugs unless stated in my name! Shoutout to the cuddle/blanket ponies! </p><p>
     <p> I am majority of the time afk decorating skins, please whisper in general to have any sort of response back.</p>
     <p> Do NOT post any of my skins onto pinterest with or without credit. </p>
-    <p>Don't expect a response out of me all the time, but i will respond if i want to.<p>
+    <p>Mainly hanging out on my own or with my little brother kyro, shoutout to him @grrimdesires.<p>
 </details>
 <br>
 <details>
