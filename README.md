@@ -60,8 +60,9 @@
 Know what you're supporting.
 <p> Seildirectory fans (I have personal issues with the development team and popular members of it's community).</p>
 <p> Helluva/Hazbin Cosplayers/fans, TADC supporters, miHoYo fans/supporters, "blackwashing is real", whitewashers of any sorts.
-    <p> TCC supporters/cosplayers, roblox "drama/rant" account supporters, Spawnism (the cults) supporters.
-    <p> non sharing selfshippers (unless friend), I find you guys incredibly weird.</p>
+    <p>TCC supporters/cosplayers, roblox "drama/rant" account supporters, Spawnism (the cults) supporters.<p>
+    <p>non sharing selfshippers (unless friend), I find you guys incredibly weird.</p>
+    <p>Generative AI supporters even if you're using gen ai stuff for jokes.</p>
 
    ☣️ : sonic/exe/fanfic media's of sega franchise fans, Dandy's world fans, literally anyone on tiktok for more than an hour. 
     
