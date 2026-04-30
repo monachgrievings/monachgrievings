@@ -81,6 +81,7 @@ Know what you're supporting.
 <p>Robloxian lore/exploiters/Forums shit, AVA/AVM!!!!!, Minecraft webseries (aregect priority), sonic.exe's, horror games</p>
 <p>regretevator, dandys world, blocktales, phighting, CDarchives, prisonlife, PMM,</p>
 <p>Deltarune/Undertale, Ultrakill, Vocaloid/Fanloid/Talkloid, Brandonworks, Die of death</p>
+ <p>thomas the train, baldis basic, splatoon</p>
  <details>
   <summary><ins>Hobbies</ins></summary>
   <div align="center">
