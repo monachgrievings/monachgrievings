@@ -65,10 +65,11 @@ Know what you're supporting.
     <p>Generative AI supporters even if you're using gen ai stuff for jokes.</p>
     <p>Kaiju paradise fans/cosplayers</p>
 
-   ☣️ : sonic/exe/fanfic media's of sega franchise fans, Dandy's world fans, literally anyone on tiktok for more than an hour. 
+   <p>☣️ : sonic/exe/fanfic media's of sega franchise fans, Dandy's world fans, literally anyone on tiktok for more than an hour.<p>
     
-   ☣️ : Roblox arg/webseries community in general, MHA/JJK or most of the anime community tbh.
-   ☣️ : Forsaken/Grace cosplayers (i know people can be attached to the media, i am aswell. Just dont support the devs.)
+   <p>☣️ : Roblox arg/webseries community in general, MHA/JJK or most of the anime community tbh.<p>
+ 
+   <p>☣️ : Forsaken/Grace cosplayers (i know people can be attached to the media, i am aswell. Just dont support the devs.)<p><
    
    
   </div>
