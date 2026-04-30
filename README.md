@@ -63,6 +63,7 @@ Know what you're supporting.
     <p>TCC supporters/cosplayers, roblox "drama/rant" account supporters, Spawnism (the cults) supporters.<p>
     <p>non sharing selfshippers (unless friend), I find you guys incredibly weird.</p>
     <p>Generative AI supporters even if you're using gen ai stuff for jokes.</p>
+    <p>Kaiju paradise fans/cosplayers</p>
 
    ☣️ : sonic/exe/fanfic media's of sega franchise fans, Dandy's world fans, literally anyone on tiktok for more than an hour. 
     
