@@ -26,7 +26,7 @@
     <p> Hypersharing selfshipper and soon-to-be animation college student at Sheridan.<p>
     <p>I have very STRONG beliefs and CONTROVERSIAL opinions. Anti-censorship, let's all hug!</p>
     <p> Medically diagnosed with Major depression (On prozac for this), Social Anxiety and C=PTSD</p>
-   <p> medically diagnosed with Dyslexia and High fun autism </p>
+   <p> medically diagnosed with Dyslexia and High functioning autism </p>
    <p> suspected osdd-1a system and NPD <p>
     <p> I go by my boundaries strongly, same goes for any of my friends.</p>
     <p>  Partially known in the roblox arg/cosplaying community. I'm also a clothing/ugc maker! </p>
