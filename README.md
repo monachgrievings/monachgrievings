@@ -69,7 +69,8 @@ Know what you're supporting.
     
    <p>☣️ : Roblox arg/webseries community in general, MHA/JJK or most of the anime community tbh.<p>
  
-   <p>☣️ : Forsaken/Grace cosplayers (i know people can be attached to the media, i am aswell. Just dont support the devs.)<p><
+   <p>☣️ : Forsaken/Grace cosplayers (i know people can be attached to the media, i am aswell. Just dont support the devs.)<p>
+   <p>☣️: Russian players (just from experience)</p>
    
    
   </div>
