@@ -66,7 +66,7 @@ Know what you're supporting.
     <p>non sharing selfshippers (unless friend), I find you guys incredibly weird.</p>
     <p>Generative AI supporters even if you're using gen ai stuff for jokes.</p>
     <p>Kaiju paradise fans/cosplayers</p>
-    <p>fucking sark sonic cosplayers bro, your source media raped a child for brownie points</p>
+    <p>fucking og sark sonic cosplayers bro, your source media raped a child for brownie points</p>
 
    <p>☣️ : sonic/exe/fanfic media's of sega franchise fans, Dandy's world fans, literally anyone on tiktok for more than an hour.<p>
     
