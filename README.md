@@ -8,7 +8,7 @@
 # Monach / Grieth
 **I do not friend/follow people under 16+ sorry!**
 
-*heavily inspired off various other githubs!*
+[any major socials!](https://guns.lol/yoijku)
  
  <sub>Underlined are clickable</sub>
  
