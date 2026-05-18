@@ -5,7 +5,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Math+sans+italic+&duration=3000&pause=200&color=0F00F7&multiline=true&width=435&lines=%22+Wires+intertwine+and+Flesh+rots.%22)](https://git.io/typing-svg)
 
-# Monach / Stu / Grieth
+# Monach / Grieth
 **I do not friend/follow people under 16+ sorry!**
 
 *heavily inspired off various other githubs!*
