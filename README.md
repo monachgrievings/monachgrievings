@@ -43,8 +43,7 @@
    <p>"Read GH" : Read github profile , "sign ata" : leave a message on my atabook</p>
    <p>"DNIUP/F" : Do not interact unless party/friend</p>
     <p> I block/hide people permanantly if I spot you in my DNI, no excuses. <p>
-     <p>I dont joke about this either,<p>
-      <img src=(https://files.catbox.moe/enyej4.jpeg<p>
+     <p> I dont joke about this either. https://files.catbox.moe/enyej4.jpeg <p>
     <p> I am fine with cuddling, hiding behind or hugs unless stated in my name! Shoutout to the cuddle/blanket ponies! </p><p>
     <p> I am majority of the time afk decorating skins, please whisper in general to have any sort of response back.</p>
     <p> Do NOT post any of my skins onto pinterest with or without credit. </p>
@@ -108,4 +107,3 @@ Know what you're supporting.
 <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_5918.gif/>
 <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_5928.gif/> 
 
- 
