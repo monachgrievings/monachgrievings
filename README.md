@@ -1,9 +1,10 @@
 ## ...
 <p align="center">
- <img src="https://images-ext-1.discordapp.net/external/4dxWGlL-2fEds1QrNAIWdCs0cfskPvm9AlkvQeDoz8w/https/64.media.tumblr.com/e3f7195ddca3934eb0996c258240b9fc/7a866c19a339e7b5-bc/s2048x3072/fed58d6a5063bfc928c9fe4da08186aad2274109.gifv?format=webp&width=1860&height=434" />
+<img width="630" height="27" alt="image" src="https://github.com/user-attachments/assets/e9ff8fcc-56bf-458e-9531-f5fec61b204e" />
+
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Math+sans+italic+&duration=3000&pause=200&color=0F00F7&multiline=true&width=435&lines=%22+Wires+intertwine+and+Flesh+rots.%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rubik+80s+fade&pause=1000&color=0006C9&width=435&lines=%E2%80%9C+Your+mind+continues+to+rot+%E2%80%9C;%E2%80%9C+And+yet.%E2%80%9D;%E2%80%9C+You+persist+that+you%E2%80%99re+alright.+%E2%80%9C)](https://git.io/typing-svg)
 
 # Monach / Grieth
 **I do not friend/follow people under 16+ sorry!**
