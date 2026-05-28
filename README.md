@@ -30,8 +30,7 @@
    <p> suspected osdd-1a system and NPD <p>
     <p> I go by my boundaries strongly, same goes for any of my friends.</p>
     <p>  Partially known in the roblox arg/cosplaying community. </p>
-           <p> I say slurs I can reclaim alot. Do not be afraid to ever set your boundaries </p>
-             <p> or tell me to stop <p>
+           <p> I say slurs I can reclaim alot. Do not be afraid to tell me to stop! </p>
   </div>
 </details>
 
@@ -39,13 +38,12 @@
   <summary><ins>Pony Town</ins></summary>
 
   <div align="center">
-    <p> Abbrivated names: "DNC" : Do not copy , "DNIUF" : Do not interact unless friend , "IWC" : interact with care </p>
-   <p>"Read GH" : Read github profile , "sign ata" : leave a message on my atabook</p>
-   <p>"DNIUP/F" : Do not interact unless party/friend</p>
+    <p> Abbrivated names = "DNC": Do not copy , "DNIUF": Do not interact unless friend , "IWC": interact with care or caution. </p>
+   <p>"Read GH": Read github profile , "sign ata": leave a message on my atabook!</p>
+   <p>"DNIUP/F": Do not interact unless party/friend</p>
     <p> I block/hide people permanantly if I spot you in my DNI, no excuses. <p>
      <p> I dont joke about this either. https://files.catbox.moe/enyej4.jpeg <p>
-    <p> I am fine with cuddling, hiding behind or hugs unless stated in my name! Shoutout to the cuddle/blanket ponies! </p><p>
-    <p> I am majority of the time afk decorating skins, please whisper in general to have any sort of response back.</p>
+    <p> I am fine with cuddling, kissing, booping hiding behind or hugs unless stated in my name! Shoutout to the cuddle/blanket ponies! </p><p>
     <p> Do NOT post any of my skins onto pinterest with or without credit. </p>
 </details>
 <br>
@@ -84,10 +82,8 @@ Know what you're supporting.
 
 <details>
   <summary><ins>Fandoms (In Order of most active)</ins></summary>
-<p>Robloxian lore/exploiters/Forums shit, AVA/AVM!!!!!, Minecraft webseries (aregect priority), sonic.exe's, horror games</p>
-<p>regretevator, dandys world, blocktales, phighting, CDarchives, prisonlife, PMM,</p>
-<p>Deltarune/Undertale, Ultrakill, Vocaloid/Fanloid/Talkloid, Brandonworks, Die of death</p>
- <p>thomas the train, baldis basic, splatoon</p>
+<p>sonic/exe/fanfic media's of sega franchise fans, AVA/M (Animation vs Animator/Minecraft.), minecraft webseries (aregect interested rn!!), Roblox fandoms (Forums/Exploiters, Nullscape, blocktales, dandys world, phighting, cdarchives, forsaken, die of death, Pupi's midnight munchies, BRANDONWORKS, seildirectory </p>
+<p>Deltarune/Undertale, Ultrakill, Shed17, Vocaloid/Fanloid/Talkloid,thomas the train, baldis basic</p>
  <details>
   <summary><ins>Hobbies</ins></summary>
   <div align="center">
@@ -95,7 +91,7 @@ Know what you're supporting.
   </div>
   <details>
 <summary><ins>Music/Interests</ins></summary>
-<p>🎵 : Newdad, KMFDM, Arctic Monkies, And one, alternative rock in general and espesically creepy ambient music</p>
+<p>🎵 : Newdad, KMFDM, Arctic Monkies, And one, alternative rock in general and espesically eerie ambient music</p>
    <p> 🎵 : Speedcore/Breakcore, Heavy metal, Jack Stauber (moreso his older work)
 <p>❤️ : Politics, Mecha/Robotics, psychology, character/reading analyasis, horror media's, history.</p>
 
