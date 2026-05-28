@@ -25,11 +25,11 @@
  <p> Multifandom and Multimedia artist for 14 years </p>
     <p> Hypersharing selfshipper and soon-to-be animation college student at Sheridan.<p>
     <p>I have very STRONG beliefs and CONTROVERSIAL opinions. Anti-censorship, let's all hug!</p>
-    <p> Medically diagnosed with Major depression (On prozac for this), Social Anxiety and C=PTSD</p>
+    <p> Medically diagnosed with Major depression (On prozac for this), Social Anxiety and C-PTSD</p>
    <p> medically diagnosed with Dyslexia and High functioning autism </p>
    <p> suspected osdd-1a system and NPD <p>
     <p> I go by my boundaries strongly, same goes for any of my friends.</p>
-    <p>  Partially known in the roblox arg/cosplaying community. I'm also a clothing/ugc maker! </p>
+    <p>  Partially known in the roblox arg/cosplaying community. </p>
            <p> I say slurs I can reclaim alot. Do not be afraid to ever set your boundaries </p>
              <p> or tell me to stop <p>
   </div>
@@ -65,10 +65,10 @@ Know what you're supporting.
     <p>TCC supporters/cosplayers, roblox "drama/rant" account supporters, Spawnism (the cults) supporters.<p>
     <p>non sharing selfshippers (unless friend), I find you guys incredibly weird.</p>
     <p>Generative AI supporters even if you're using gen ai stuff for jokes.</p>
-    <p>Kaiju paradise fans/cosplayers, roblox myth community and its supporters</p>
-    <p>fucking og sark sonic cosplayers bro, your source media raped a child for brownie points</p>
+    <p>Kaiju paradise fans/cosplayers, </p>
+    <p>fucking sark sonic cosplayers bro, your source media raped women for brownie points</p>
 
-   <p>☣️ : sonic/exe/fanfic media's of sega franchise fans, Dandy's world fans, literally anyone on tiktok for more than an hour.<p>
+   <p>☣️ :  Dandy's world fans, literally anyone on tiktok for more than an hour.<p>
     
    <p>☣️ : Roblox arg/webseries community in general, MHA/JJK or most of the anime community tbh.<p>
  
