@@ -36,5 +36,5 @@ ${\textsf{\color{#E3E3E3}I block and hide freely!! }}$<br>
 </details>
 
 <p align="center">
-<img src=https://files.catbox.moe/gh506n.jpg align="left" width="67%"><p align="center">
+<img src=https://files.catbox.moe/gh506n.jpg 
 <div align="center">
