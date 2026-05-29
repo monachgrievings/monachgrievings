@@ -12,7 +12,7 @@
  <sub>Underlined are clickable</sub>
  <sub> warning, have a attention span more than 3 minutes because these have a lot of information <sub>
  <details>
-<summary>${\textsf{\color{#20147A}Before you interact}}$</summary>
+<summary>${\textsf{\color{#20147A}Before you interact}}$</summary> 
 ${\textsf{\color{#241CD1} Monach/Grieth/Stu , 18 it/itself or any nonhuman/tech terms.}}$<br> 
 ${\textsf{\color{#241CD1} Blasian (trinidad/Filipino) Canadian citizen, multifandom }}$<br>
 ${\textsf{\color{#E3E3E3}I have very strong beliefs and will stick to my boundaries severely. }}$<br>
