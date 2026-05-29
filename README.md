@@ -1,4 +1,4 @@
- !! I DO NOT FRIEND OR FOLLOW PEOPLE UNDER 16+ , PLEASE INFORM ME OF YOUR AGE BEFORE DOING TRYING SO!! <br>also DO NOT copy any of my skins 
+ !! I DO NOT FRIEND OR FOLLOW PEOPLE UNDER 16+ , PLEASE INFORM ME OF YOUR AGE BEFORE DOING TRYING SO!! <br> all socials are 16+ still also DO NOT copy any of my skins 
 <br> ALL art credit goes to https://x.com/naenae_png
 <p align="center">
 <img src=https://files.catbox.moe/7lgrxz.png
@@ -28,7 +28,7 @@ ${\textsf{\color{#E3E3E3}I block and hide freely!! }}$<br>
  ${\textsf{\color{#241CD1} 🩵Russians and Roblox arg players interact with caution.}}$<br>
  🔪Basic criteria https://basic-dni.crd.co/
  ${\textsf{\color{#E3E3E3} 🔪Forsaken, Pressure, Grace , Doombyfate, Roblox myth supporters, Guts and Blackpowder supporters.}}$<br>
- 🔪these people yo https://files.catbox.moe/4woaxt.webp , https://files.catbox.moe/mkkkbs.webp and any sark sonic cosplayers 
+ 🔪these people yo https://files.catbox.moe/871h4r.png
  ${\textsf{\color{#E3E3E3} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
  ${\textsf{\color{#E3E3E3} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E3E3E3} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
