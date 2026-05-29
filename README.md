@@ -23,7 +23,7 @@ ${\textsf{\color{#E3E3E3}I block and hide freely!! }}$<br>
  <img src="https://files.catbox.moe/2gqhfk.webp" align="right" width="25%">
  
 <details>
- <summary>${\textsf{\color{#3B00D9}🩵Boundaries/ 🔪DO NOT interact}}$</summary>
+ <summary>${\textsf{\color{#3B00D9}🩵Boundaries/🔪DNI}}$</summary>
  ${\textsf{\color{#241CD1} 🩵I'm okay with booping, Cuddling, Hugs/Hiding, whispers unless stated in name }}$<br>
  ${\textsf{\color{#241CD1} 🩵Russians and Roblox arg players interact with caution.}}$<br>
  ${\textsf{\color{#E3E3E3} 🔪Basic criteria=basic-dni.crd.co }}$<br>
