@@ -26,9 +26,9 @@ ${\textsf{\color{#E3E3E3}I block and hide freely!! }}$<br>
  <summary>${\textsf{\color{#3B00D9}🩵Boundaries/🔪DNI}}$</summary>
  ${\textsf{\color{#241CD1} 🩵I'm okay with booping, Cuddling, Hugs/Hiding, whispers unless stated in name }}$<br>
  ${\textsf{\color{#241CD1} 🩵Russians and Roblox arg players interact with caution.}}$<br>
- Basic criteria https://basic-dni.crd.co/
+ 🔪Basic criteria https://basic-dni.crd.co/
  ${\textsf{\color{#E3E3E3} 🔪Forsaken, Pressure, Grace , Doombyfate, Roblox myth supporters, Guts and Blackpowder supporters.}}$<br>
- these people yo https://files.catbox.moe/4woaxt.webp , https://files.catbox.moe/mkkkbs.webp and any sark sonic cosplayers 
+ 🔪these people yo https://files.catbox.moe/4woaxt.webp , https://files.catbox.moe/mkkkbs.webp and any sark sonic cosplayers 
  ${\textsf{\color{#E3E3E3} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
  ${\textsf{\color{#E3E3E3} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E3E3E3} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
