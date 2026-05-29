@@ -5,7 +5,7 @@
 <div align="center">
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rubik+80s+fade&pause=1000&color=0006C9&width=435&lines=%E2%80%9C+Your+mind+continues+to+rot+%E2%80%9C;%E2%80%9C+And+yet.%E2%80%9D;%E2%80%9C+You+persist+that+you%E2%80%99re+alright.+%E2%80%9C)](https://git.io/typing-svg)
-<img src=https://files.catbox.moe/8gpn69.webp align="left" width="35%"><p align="center">
+<img src=https://files.catbox.moe/8gpn69.webp align="left" width="45%"><p align="center">
 
 [any major socials!](https://guns.lol/yoijku)
  
@@ -19,4 +19,4 @@ ${\textsf{\color{#E3E3E3}I have very strong beliefs and will stick to my boundar
 ${\textsf{\color{#E3E3E3}I have a crude/uncensored type of humour and I will say slurs often.}}$<br>
 ${\textsf{\color{#2D00A6} !! tell me to stop whenever you can !! }}$<br>
  </details>
- 
+ <img src="https://files.catbox.moe/2gqhfk.webp" align="right" width="55%">
