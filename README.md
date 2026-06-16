@@ -9,7 +9,7 @@
 
 [any major socials!](https://guns.lol/yoijku)
  
- <sub>Underlined are clickable.</sub>
+ <sub>Underlined or arrowed text are clickable.</sub>
  <sub> warning, these have a lot of information. <sub>
  <details>
 <summary>${\textsf{\color{#20147A}Before you interact}}$</summary> 
