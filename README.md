@@ -30,7 +30,6 @@ ${\textsf{\color{#E3E3E3}I block and hide freely!! }}$<br>
  ${\textsf{\color{#241CD1} 🩵Sonic area interact with awful caution, alot of you guys there are fucking weird}}$<br>
  🔪Basic criteria https://basic-dni.crd.co/
  ${\textsf{\color{#E3E3E3} 🔪Forsaken, Pressure, Grace , Doombyfate, Roblox myth supporters, Guts and Blackpowder supporters.}}$<br>
- 🔪these people yo https://files.catbox.moe/m08z53.png<br>
  ${\textsf{\color{#E3E3E3} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
  ${\textsf{\color{#E3E3E3} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E3E3E3} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
