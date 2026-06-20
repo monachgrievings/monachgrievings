@@ -26,7 +26,7 @@ ${\textsf{\color{#E3E3E3}I block and hide freely!! }}$<br>
  <summary>${\textsf{\color{#3B00D9}🩵Boundaries/🔪DNI}}$</summary>
  ${\textsf{\color{#241CD1} 🩵I'm okay with booping, Cuddling, Hugs/Hiding, whispers unless stated in name }}$<br>
  ${\textsf{\color{#241CD1} 🩵Russians and Roblox arg players interact with caution.}}$<br>
- ${\textsf{\color{#241CD1} 🩵Sonic area interact with awful caution, alot of you guys there are fucking weird}$<br>
+ ${\textsf{\color{#241CD1} 🩵Sonic area interact with awful caution, alot of you guys there are fucking weird}}$<br>
  🔪Basic criteria https://basic-dni.crd.co/
  ${\textsf{\color{#E3E3E3} 🔪Forsaken, Pressure, Grace , Doombyfate, Roblox myth supporters, Guts and Blackpowder supporters.}}$<br>
  🔪these people yo https://files.catbox.moe/m08z53.png<br>
