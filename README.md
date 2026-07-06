@@ -4,7 +4,7 @@ I DO NOT FRIEND OR FOLLOW PEOPLE UNDER 16.PLEASE INFORM ME OF YOUR AGE BEFORE
 <br> pfp art credit goes to https://x.com/kittymeowdania, lord x model belongs to outcome memories.
 <br> links that aren't in this specific bio are for awareness purpose, advice at your own risk.
 <p align="center">
-<img src=https://files.catbox.moe/uw92ae.png
+<img src=https://files.catbox.moe/upuziq.png
 <div align="center">
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4000&pause=300&color=87170E&width=435&lines=+%E2%80%9C+will+you+eventually...+%E2%80%9C+;%E2%80%9C++disappear+into+the+sensation+%3F+%E2%80%9C+;%E2%80%9C+Will+you+become+nothing+%E2%80%9C+;%E2%80%9C+but+the+sting+%3F+%E2%80%9C)](https://git.io/typing-svg)
@@ -40,5 +40,5 @@ ${\textsf{\color{#E3E3E3}I block and hide freely!! }}$<br>
 </details>
 
 <p align="center">
-<img src=https://files.catbox.moe/9a41w4.png
+<img src=https://files.catbox.moe/d2mv8f.png
 <div align="center">
