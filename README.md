@@ -27,13 +27,15 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  <img src=https://files.catbox.moe/py3jdd.png align="right" width="25%">
  
 <details>
- <summary>${\textsf{\color{#3B00D9}🪓Boundaries/🔪DNI}}$</summary>
+ <summary>${\textsf{\color{#A70000}🪓Boundaries/🔪DNI}}$</summary>
  ${\textsf{\color{#B10000} 🪓I'm okay with booping, Cuddling, Hugs/Hiding, whispers unless stated in name }}$<br>
  ${\textsf{\color{#B10000} 🪓Russians and Roblox arg players interact with caution.}}$<br>
  ${\textsf{\color{#B10000} 🪓Sonic area interact with awful caution, alot of you guys there are fucking gross.}}$<br>
  🔪Basic criteria https://basic-dni.crd.co/<br>
- ${\textsf{\color{#3B00D9} 🔪HARD BLOCK + with reasoning}}$<br>
-  ${\textsf{\color{#E8C136} 🔪 Forsaken = Controversy from the development team and dangerous fanbzse. }}$<br>
+ ${\textsf{\color{#A70000} 🔪HARD BLOCK + with reasoning}}$<br>
+  ${\textsf{\color{#A70000} 🔪 Forsaken supporters = Controversy from the development team, ex-owner is a criminal being funded by active players on the game, dangerous fanbase also }}$<br>
+ ${\textsf{\color{#A70000} 🔪 doombyfate supportete = despite the seizure death being a hoax, how the team responded to someone's disability, mocking it is disgusting.}}$<br>
+ ${\textsf{\color{#A70000} 🔪 Guts and Blackpowder = Homophobic and misogynistic team. One of their devs released a now deleted video of them re-inacting footage of the Palestine-Gaza bombings in a unreleased map.   }}$<br>
  ${\textsf{\color{#E8C136} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
  ${\textsf{\color{#E8C136} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E8C136} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
