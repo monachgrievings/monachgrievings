@@ -27,17 +27,18 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  <img src=https://files.catbox.moe/py3jdd.png align="right" width="25%">
  
 <details>
- <summary>${\textsf{\color{#3B00D9}🩵Boundaries/🔪DNI}}$</summary>
- ${\textsf{\color{#241CD1} 🩵I'm okay with booping, Cuddling, Hugs/Hiding, whispers unless stated in name }}$<br>
- ${\textsf{\color{#241CD1} 🩵Russians and Roblox arg players interact with caution.}}$<br>
- ${\textsf{\color{#241CD1} 🩵Sonic area interact with awful caution, alot of you guys there are fucking weird}}$<br>
- 🔪Basic criteria https://basic-dni.crd.co/
- ${\textsf{\color{#E3E3E3} 🔪Forsaken, Pressure, Grace , Doombyfate, Roblox myth supporters/cosplayers, Guts and Blackpowder supporters.}}$<br>
- ${\textsf{\color{#E3E3E3} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
- ${\textsf{\color{#E3E3E3} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
- ${\textsf{\color{#E3E3E3} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
- ${\textsf{\color{#E3E3E3} 🔪Kaiju paradise or CHANGED supporters/skins}}$<br>
- ${\textsf{\color{#E3E3E3} 🔪 If you harass people willingly, esp if you're an adult doing it to minors}}$<br>
+ <summary>${\textsf{\color{#3B00D9}🪓Boundaries/🔪DNI}}$</summary>
+ ${\textsf{\color{#B10000} 🪓I'm okay with booping, Cuddling, Hugs/Hiding, whispers unless stated in name }}$<br>
+ ${\textsf{\color{#B10000} 🪓Russians and Roblox arg players interact with caution.}}$<br>
+ ${\textsf{\color{#B10000} 🪓Sonic area interact with awful caution, alot of you guys there are fucking gross.}}$<br>
+ 🔪Basic criteria https://basic-dni.crd.co/<br>
+ ${\textsf{\color{#3B00D9} 🔪HARD BLOCK + with reasoning}}$<br>
+  ${\textsf{\color{#E8C136} 🔪 Forsaken = Controversy from the development team and dangerous fanbzse. }}$<br>
+ ${\textsf{\color{#E8C136} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
+ ${\textsf{\color{#E8C136} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
+ ${\textsf{\color{#E8C136} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
+ ${\textsf{\color{#E8C136} 🔪Kaiju paradise or CHANGED supporters/skins}}$<br>
+ ${\textsf{\color{#E8C136} 🔪Qwel supporters}}$<br>
 </details>
 
 <p align="center">
