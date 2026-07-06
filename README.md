@@ -1,4 +1,6 @@
-I DO NOT FRIEND OR FOLLOW PEOPLE UNDER 16+ , PLEASE INFORM ME OF YOUR AGE BEFORE DOING TRYING SO<br> all socials are 16+, mainly used for ponytown usuage!, best viewed in desktop, also DO NOT copy any of my skins or post them on pintrest.
+I DO NOT FRIEND OR FOLLOW PEOPLE UNDER 16.PLEASE INFORM ME OF YOUR AGE BEFORE
+<br> all socials are 16+, mainly used for ponytown!, best viewed in desktop 
+<br> also DO NOT copy any of my skins or post them on pintrest, no you don't have my permission.
 <br> pfp art credit goes to https://x.com/kittymeowdania, lord x model belongs to outcome memories.
 <br> links that aren't in this specific bio are for awareness purpose, advice at your own risk.
 <p align="center">
@@ -21,7 +23,7 @@ ${\textsf{\color{#E3E3E3}I have a crude/uncensored type of humour and I will say
 ${\textsf{\color{#2D00A6} !! tell me to stop whenever you can !! }}$<br>
 ${\textsf{\color{#E3E3E3}I block and hide freely!! }}$<br>
  </details>
- <img src="https://files.catbox.moe/2gqhfk.webp" align="right" width="25%">
+ <img src=https://files.catbox.moe/py3jdd.png align="right" width="25%">
  
 <details>
  <summary>${\textsf{\color{#3B00D9}🩵Boundaries/🔪DNI}}$</summary>
