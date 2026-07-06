@@ -35,7 +35,9 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#A70000} 🔪HARD BLOCK + with reasoning}}$<br>
   ${\textsf{\color{#A70000} 🔪 Forsaken supporters = Controversy from the development team, ex-owner is a criminal being funded by active players on the game, dangerous fanbase also }}$<br>
  ${\textsf{\color{#A70000} 🔪 doombyfate supportete = despite the seizure death being a hoax, how the team responded to someone's disability, mocking it is disgusting.}}$<br>
- ${\textsf{\color{#A70000} 🔪 Guts and Blackpowder = Homophobic and misogynistic team. One of their devs released a now deleted video of them re-inacting footage of the Palestine-Gaza bombings in a unreleased map.   }}$<br>
+ ${\textsf{\color{#A70000} 🔪 Guts and Blackpowder = Homophobic and misogynistic team. One of their devs released a now deleted}}$<br>
+ ${\textsf{\color{#A70000} video of devs in-acting the Palestine-Gaza bombing footage in unreleased map as a gag. }}$<br>
+ ${\textsf{\color{#A70000} 🔪 Roblox myth supporters = .}}$<br>
  ${\textsf{\color{#E8C136} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
  ${\textsf{\color{#E8C136} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E8C136} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
