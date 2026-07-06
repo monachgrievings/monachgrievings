@@ -15,13 +15,14 @@ I DO NOT FRIEND OR FOLLOW PEOPLE UNDER 16.PLEASE INFORM ME OF YOUR AGE BEFORE
  <sub>Underlined or arrowed text are clickable.</sub>
  <sub> warning, these have a lot of information. <sub>
  <details>
-<summary>${\textsf{\color{#20147A}Before you interact}}$</summary> 
+<summary>${\textsf{\color{#7C0000}Before you interact}}$</summary> 
 ${\textsf{\color{#241CD1} Monach/Grieth/Stu , 18 it/itself or any nonhuman/tech terms.}}$<br> 
 ${\textsf{\color{#241CD1} Blasian (trinidad/Filipino) Canadian citizen, multifandom }}$<br>
 ${\textsf{\color{#E3E3E3}I have very strong beliefs and will stick to my boundaries severely. }}$<br>
 ${\textsf{\color{#E3E3E3}I have a crude/uncensored type of humour and I will say slurs often.}}$<br>
-${\textsf{\color{#2D00A6} !! tell me to stop whenever you can !! }}$<br>
-${\textsf{\color{#E3E3E3}I block and hide freely!! }}$<br>
+ ${\textsf{\color{#E3E3E3} I have controversial interests and idealogy, be mindful.}}$<br>
+${\textsf{\color{#2D00A6} Communicate to me if you have an issue or to set your boundaries. }}$<br>
+${\textsf{\color{#E3E3E3}I block and hide freely, take it personally.  }}$<br>
  </details>
  <img src=https://files.catbox.moe/py3jdd.png align="right" width="25%">
  
