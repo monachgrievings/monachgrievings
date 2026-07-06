@@ -5,7 +5,7 @@
 <img src=https://files.catbox.moe/7lgrxz.png
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rubik+80s+fade&pause=1000&color=0006C9&width=435&lines=%E2%80%9C+Your+mind+continues+to+rot+%E2%80%9C;%E2%80%9C+And+yet.%E2%80%9D;%E2%80%9C+You+persist+that+you%E2%80%99re+alright.+%E2%80%9C)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4000&pause=300&color=87170E&width=435&lines=+%E2%80%9C+will+you+eventually...+%E2%80%9C+;%E2%80%9C++disappear+into+the+sensation+%3F+%E2%80%9C+;%E2%80%9C+Will+you+become+nothing+%E2%80%9C+;%E2%80%9C+but+the+sting+%3F+%E2%80%9C)](https://git.io/typing-svg)
 <img src=https://files.catbox.moe/8gpn69.webp align="left" width="45%"><p align="center">
 
 [any major socials!](https://guns.lol/yoijku)
