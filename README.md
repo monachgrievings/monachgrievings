@@ -2,11 +2,11 @@
 <br> ALL art credit goes to https://x.com/naenae_png
 <br> links that aren't in this specific bio are for awareness purpose, advice at your own risk.
 <p align="center">
-<img src=https://files.catbox.moe/7lgrxz.png
+<img src=https://files.catbox.moe/uw92ae.png
 <div align="center">
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4000&pause=300&color=87170E&width=435&lines=+%E2%80%9C+will+you+eventually...+%E2%80%9C+;%E2%80%9C++disappear+into+the+sensation+%3F+%E2%80%9C+;%E2%80%9C+Will+you+become+nothing+%E2%80%9C+;%E2%80%9C+but+the+sting+%3F+%E2%80%9C)](https://git.io/typing-svg)
-<img src=https://files.catbox.moe/8gpn69.webp align="left" width="45%"><p align="center">
+<img src=https://files.catbox.moe/ova9b1.png align="left" width="45%"><p align="center">
 
 [any major socials!](https://guns.lol/yoijku)
  
@@ -38,5 +38,5 @@ ${\textsf{\color{#E3E3E3}I block and hide freely!! }}$<br>
 </details>
 
 <p align="center">
-<img src=https://files.catbox.moe/gh506n.jpg 
+<img src=https://files.catbox.moe/9a41w4.png
 <div align="center">
