@@ -36,7 +36,7 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#E8C136} ❗️HARD BLOCKS + with reasoning}}$<br>
   ${\textsf{\color{#E8C136} ❗️ Forsaken supporters= Controversy from the development team,}}$<br>
  ${\textsf{\color{#E8C136} ex-owner is a criminal being funded by active players on the game,}}$<br>
- ${\textsf{\color{#E8C136} ❗️dangerous fan base also.}}$<br>
+ ${\textsf{\color{#E8C136} dangerous fan base also.}}$<br>
  ${\textsf{\color{#E8C136} ❗️ doombyfate supporters= despite the seizure death being a hoax, how the team responded}}$<br>
  ${\textsf{\color{#E8C136} to someone's disability, mocking it, is disgusting.}}$<br>
  ${\textsf{\color{#E8C136} ❗️ Guts and Blackpowder= Homophobic and misogynistic team. One of their devs released a now deleted}}$<br>
