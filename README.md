@@ -29,6 +29,9 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
 <details>
  <summary>${\textsf{\color{#A70000}🪓Boundaries/🔪DNI}}$</summary>
  ${\textsf{\color{#B10000} 🪓I'm okay with booping, Cuddling, Hugs/Hiding, whispers unless stated in name }}$<br>
+ ${\textsf{\color{#B10000} 🪓 Do not make any jokes regarding human trafficking, abuse/assault}}$<br>
+ ${\textsf{\color{#B10000} rape or grooming around me if we are NOT close friends.}}$<br>
+ ${\textsf{\color{#B10000} 🪓 Do not make suggestive/nsfw jokes towards me if you're not an adult.}}$<br>
  ${\textsf{\color{#B10000} 🪓Russians and Roblox arg players interact with caution.}}$<br>
  ${\textsf{\color{#B10000} just from past experience.}}$<br>
  ${\textsf{\color{#B10000} 🪓Sonic area interact with awful caution, alot of you guys there are fucking gross.}}$<br>
