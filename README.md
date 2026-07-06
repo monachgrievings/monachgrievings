@@ -30,16 +30,18 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  <summary>${\textsf{\color{#A70000}🪓Boundaries/🔪DNI}}$</summary>
  ${\textsf{\color{#B10000} 🪓I'm okay with booping, Cuddling, Hugs/Hiding, whispers unless stated in name }}$<br>
  ${\textsf{\color{#B10000} 🪓Russians and Roblox arg players interact with caution.}}$<br>
+ ${\textsf{\color{#B10000} just from past experience.}}$<br>
  ${\textsf{\color{#B10000} 🪓Sonic area interact with awful caution, alot of you guys there are fucking gross.}}$<br>
  🔪Basic criteria https://basic-dni.crd.co/<br>
- ${\textsf{\color{#E8C136} HARD BLOCKS + with reasoning}}$<br>
-  ${\textsf{\color{#E8C136} 🔪 Forsaken supporters = Controversy from the development team, ex-owner is a criminal being funded by active players on the game, dangerous fanbase also }}$<br>
- ${\textsf{\color{#E8C136} 🔪 doombyfate supportete = despite the seizure death being a hoax, how the team responded to someone's disability, mocking it is disgusting.}}$<br>
- ${\textsf{\color{#E8C136} 🔪 Guts and Blackpowder = Homophobic and misogynistic team. One of their devs released a now deleted}}$<br>
+ ${\textsf{\color{#E8C136} ❗️HARD BLOCKS + with reasoning}}$<br>
+  ${\textsf{\color{#E8C136} ❗️ Forsaken supporters = Controversy from the development team, ex-owner is a criminal being funded by active players on the game, dangerous fanbase also }}$<br>
+ ${\textsf{\color{#E8C136} ❗️ doombyfate supportete = despite the seizure death being a hoax, how the team responded to someone's disability, mocking it is disgusting.}}$<br>
+ ${\textsf{\color{#E8C136} ❗️ Guts and Blackpowder = Homophobic and misogynistic team. One of their devs released a now deleted}}$<br>
  ${\textsf{\color{#E8C136} video of devs in-acting the Palestine-Gaza bombing footage in unreleased map as a gag. }}$<br>
- ${\textsf{\color{#E8C136} 🔪 Roblox myth supporters = a community built apon taking inspiration}}$<br>
+ ${\textsf{\color{#E8C136} ❗️Roblox myth supporters/skins = a community built apon taking inspiration}}$<br>
 ${\textsf{\color{#E8C136}from predatory or dangerous individuals. keeping this legacy alive}}$<br>
  ${\textsf{\color{#E8C136} will continue the future abuse and harm of others.}}$<br>
+ ${\textsf{\color{#E8C136} ❗️}}$<br>
  ${\textsf{\color{#E8C136} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
  ${\textsf{\color{#E8C136} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E8C136} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
