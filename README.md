@@ -53,12 +53,16 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
   ${\textsf{\color{#FF0000} from the devs involving grooming, zoophilia, pedophilia }}$<br>
   ${\textsf{\color{#FF0000} and vice versa. also originally was a fetish inspired game}}$<br>
   ${\textsf{\color{#FF0000} advertised to furry hate groups and children.}}$<br>
-  ${\textsf{\color{#FF0000} ❗️Pressure supporter= with the recent allegations against zeal and }}$<br>
+  ${\textsf{\color{#FF0000} ❗️Pressure supporters/skins= with the recent allegations against zeal and }}$<br>
   ${\textsf{\color{#FF0000} harassment towards ren, i support victims first no matter what.}}$<br>
+ ${\textsf{\color{#FF0000} ❗️Qwel supporters= recently numerous ex-devs and past assosciates }}$<br>
+ ${\textsf{\color{#FF0000}  have spoken about qwel knowing rox's grooming allegations months prior}}$<br>
+  ${\textsf{\color{#FF0000} information was released publically and how she silenced victims.}}$<br>
+  ${\textsf{\color{#FF0000} she has stated that she WON'T respond to any allegations and will stay}}$<br>
+  ${\textsf{\color{#FF0000} quiet until things die down.She endangered others for her own reputation.}}$<br>
  ${\textsf{\color{#E8C136} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
  ${\textsf{\color{#E8C136} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E8C136} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
- ${\textsf{\color{#E8C136} 🔪Qwel supporters}}$<br>
 </details>
 
 <p align="center">
