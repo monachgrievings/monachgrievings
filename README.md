@@ -23,6 +23,7 @@ ${\textsf{\color{#E8C136}I have a crude/uncensored type of humour and I will say
  ${\textsf{\color{#E8C136} I have controversial interests and idealogy, be mindful.}}$<br>
 ${\textsf{\color{#B10000} Communicate to me if you have an issue or to set your boundaries. }}$<br>
 ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
+ ${\textsf{\color{#B10000} Mediorcre artist/animator/editor and hyper-sharing selfshipper}}$<br>
  </details>
  <img src=https://files.catbox.moe/py3jdd.png align="right" width="25%">
  
@@ -52,7 +53,7 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
   ${\textsf{\color{#FF0000} from the devs involving grooming, zoophilia, pedophilia }}$<br>
   ${\textsf{\color{#FF0000} and vice versa. also originally was a fetish inspired game}}$<br>
   ${\textsf{\color{#FF0000} advertised to furry hate groups and children.}}$<br>
-  ${\textsf{\color{#FF0000} Pressure supporter= with the recent allegations against zeal and }}$<br>
+  ${\textsf{\color{#FF0000} ❗️Pressure supporter= with the recent allegations against zeal and }}$<br>
   ${\textsf{\color{#FF0000} harassment towards ren, i support victims first no matter what.}}$<br>
  ${\textsf{\color{#E8C136} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
  ${\textsf{\color{#E8C136} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
