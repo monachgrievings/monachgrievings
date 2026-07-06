@@ -16,13 +16,13 @@ I DO NOT FRIEND OR FOLLOW PEOPLE UNDER 16.PLEASE INFORM ME OF YOUR AGE BEFORE
  <sub> warning, these have a lot of information. <sub>
  <details>
 <summary>${\textsf{\color{#7C0000}Before you interact}}$</summary> 
-${\textsf{\color{#241CD1} Monach/Grieth/Stu , 18 it/itself or any nonhuman/tech terms.}}$<br> 
-${\textsf{\color{#241CD1} Blasian (trinidad/Filipino) Canadian citizen, multifandom }}$<br>
-${\textsf{\color{#E3E3E3}I have very strong beliefs and will stick to my boundaries severely. }}$<br>
-${\textsf{\color{#E3E3E3}I have a crude/uncensored type of humour and I will say slurs often.}}$<br>
- ${\textsf{\color{#E3E3E3} I have controversial interests and idealogy, be mindful.}}$<br>
-${\textsf{\color{#2D00A6} Communicate to me if you have an issue or to set your boundaries. }}$<br>
-${\textsf{\color{#E3E3E3}I block and hide freely, take it personally.  }}$<br>
+${\textsf{\color{#B10000} Monach/Grieth/Stu , 18 it/itself or any nonhuman/tech terms.}}$<br> 
+${\textsf{\color{#B10000} Blasian (trinidad/Filipino) Canadian citizen, multifandom }}$<br>
+${\textsf{\color{#E8C136}I have very strong beliefs and will stick to my boundaries severely. }}$<br>
+${\textsf{\color{#E8C136}I have a crude/uncensored type of humour and I will say slurs often.}}$<br>
+ ${\textsf{\color{#E8C136} I have controversial interests and idealogy, be mindful.}}$<br>
+${\textsf{\color{#B10000} Communicate to me if you have an issue or to set your boundaries. }}$<br>
+${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  </details>
  <img src=https://files.catbox.moe/py3jdd.png align="right" width="25%">
  
