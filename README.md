@@ -44,8 +44,10 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#E8C136} ❗️Roblox myth supporters/skins = a community built apon taking inspiration}}$<br>
 ${\textsf{\color{#E8C136}from predatory or dangerous individuals. keeping this legacy alive}}$<br>
  ${\textsf{\color{#E8C136} will continue the future abuse and harm of others.}}$<br>
- ${\textsf{\color{#E8C136} ❗️Kaiju paradise/Changed supporters/skins= }}$<br>
-  ${\textsf{\color{#E8C136} ❗️}}$<br>
+ ${\textsf{\color{#E8C136} ❗️Kaiju paradise supporters/skins= repeated controversy }}$<br>
+  ${\textsf{\color{#E8C136} from the devs involving grooming, zoophilia, pedophilia }}$<br>
+  ${\textsf{\color{#E8C136} and vice versa. also originally was a fetish inspired game}}$<br>
+  ${\textsf{\color{#E8C136} advertised to furry hate groups and children.}}$<br>
  ${\textsf{\color{#E8C136} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
  ${\textsf{\color{#E8C136} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E8C136} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
