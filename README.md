@@ -37,8 +37,9 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#E8C136} 🔪 doombyfate supportete = despite the seizure death being a hoax, how the team responded to someone's disability, mocking it is disgusting.}}$<br>
  ${\textsf{\color{#E8C136} 🔪 Guts and Blackpowder = Homophobic and misogynistic team. One of their devs released a now deleted}}$<br>
  ${\textsf{\color{#E8C136} video of devs in-acting the Palestine-Gaza bombing footage in unreleased map as a gag. }}$<br>
- ${\textsf{\color{#E8C136} 🔪 Roblox myth supporters = a community built apon taking inspiration from predatory or dangerous individuals.}}$<br>
-  ${\textsf{\color{#E8C136} HARD BLOCKS + with reasoning}}$<br>
+ ${\textsf{\color{#E8C136} 🔪 Roblox myth supporters = a community built apon taking inspiration}}$<br>
+${\textsf{\color{#E8C136}from predatory or dangerous individuals. keeping this legacy alive}}$<br>
+ ${\textsf{\color{#E8C136} will continue the future abuse and harm of others.}}$<br>
  ${\textsf{\color{#E8C136} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
  ${\textsf{\color{#E8C136} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E8C136} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
