@@ -24,6 +24,7 @@ ${\textsf{\color{#E8C136}I have a crude/uncensored type of humour and I will say
 ${\textsf{\color{#B10000} Communicate to me if you have an issue or to set your boundaries. }}$<br>
 ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#B10000} Mediorcre artist/animator/editor and hyper-sharing selfshipper}}$<br>
+ ${\textsf{\color{#B10000} big fan of mothcpu, gigglegunks and Kubz scout C-: }}$<br>
  </details>
  <img src=https://files.catbox.moe/py3jdd.png align="right" width="25%">
  
@@ -38,7 +39,7 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#B10000} just from past experience.}}$<br>
  ${\textsf{\color{#B10000} 🪓Sonic area interact with awful caution, alot of you guys there are fucking gross.}}$<br>
  🔪Basic criteria https://basic-dni.crd.co/<br>
- ${\textsf{\color{#FF0000} ❗️HARD BLOCKS + with reasoning}}$<br>
+   ${\textsf{\color{#FF0000} ❗️HARD BLOCKS + reasoning }}$<br>
   ${\textsf{\color{#FF0000} ❗️ Forsaken supporters= Controversy from the development team,}}$<br>
  ${\textsf{\color{#FF0000} ex-owner is a criminal being funded by active players on the game,}}$<br>
  ${\textsf{\color{#FF0000} dangerous fan base also.}}$<br>
