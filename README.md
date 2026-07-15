@@ -10,7 +10,7 @@ I DO NOT FRIEND OR FOLLOW PEOPLE UNDER 16.PLEASE INFORM ME OF YOUR AGE BEFORE
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4000&pause=300&color=87170E&width=435&lines=+%E2%80%9C+will+you+eventually...+%E2%80%9C+;%E2%80%9C++disappear+into+the+sensation+%3F+%E2%80%9C+;%E2%80%9C+Will+you+become+nothing+%E2%80%9C+;%E2%80%9C+but+the+sting+%3F+%E2%80%9C)](https://git.io/typing-svg)
 <img src=https://files.catbox.moe/ova9b1.png align="left" width="45%"><p align="center">
 
-[art](https://sketchersunited.org/users/329643) , [ask me](https://monachgrievings.atabook.org/) 
+[art](https://sketchersunited.org/users/329643) , [ata](https://monachgrievings.atabook.org/) 
  
  <sub>Underlined or arrowed text are clickable.</sub>
  <sub> warning, these have a lot of information. <sub>
