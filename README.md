@@ -43,25 +43,32 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
   ${\textsf{\color{#FF0000} ❗️ Forsaken supporters= Controversy from the development team,}}$<br>
  ${\textsf{\color{#FF0000} ex-owner is a criminal being funded by active players on the game,}}$<br>
  ${\textsf{\color{#FF0000} dangerous fan base also.}}$<br>
+ <br>
  ${\textsf{\color{#FF0000} ❗️ doombyfate supporters= despite the seizure death being a hoax, how the team responded}}$<br>
  ${\textsf{\color{#FF0000} to someone's disability, mocking it, is disgusting.}}$<br>
+ <br>
  ${\textsf{\color{#FF0000} ❗️ Guts and Blackpowder= Homophobic and misogynistic team. One of their devs released a now deleted}}$<br>
  ${\textsf{\color{#FF0000} video of devs in-acting the Palestine-Gaza bombing footage in unreleased map as a gag. }}$<br>
+ <br>
  ${\textsf{\color{#FF0000} ❗️Roblox myth supporters/skins = a community built apon taking inspiration}}$<br>
 ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this legacy alive}}$<br>
  ${\textsf{\color{#FF0000} will continue the future abuse and harm of others.}}$<br>
- ${\textsf{\color{#FF0000} TL:DR - Please kill yourself if you cosplay roblox myths <3 }}$<br>
+ ${\textsf{\color{#FF0000} TL:DR - Please get doxxed and kill yourself if you cosplay roblox myths <3 }}$<br>
+  <br>
  ${\textsf{\color{#FF0000} ❗️Kaiju paradise supporters/skins= repeated controversy }}$<br>
   ${\textsf{\color{#FF0000} from the devs involving grooming, zoophilia, pedophilia }}$<br>
   ${\textsf{\color{#FF0000} and vice versa. also originally was a fetish inspired game}}$<br>
   ${\textsf{\color{#FF0000} advertised to furry hate groups and children.}}$<br>
+  <br>
   ${\textsf{\color{#FF0000} ❗️Pressure supporters/skins= with the recent allegations against zeal and }}$<br>
-  ${\textsf{\color{#FF0000} harassment towards ren, i support victims first no matter what.}}$<br>
+  ${\textsf{\color{#FF0000} harassment towards ren, I want nothing to do with pressure}}$<br>
+  <br>
  ${\textsf{\color{#FF0000} ❗️Qwel supporters= recently numerous ex-devs and past assosciates }}$<br>
  ${\textsf{\color{#FF0000}  have spoken about qwel knowing rox's grooming allegations months prior}}$<br>
   ${\textsf{\color{#FF0000} information was released publically and how she silenced victims.}}$<br>
-  ${\textsf{\color{#FF0000} she has stated that she WON'T respond to any allegations and will stay}}$<br>
-  ${\textsf{\color{#FF0000} quiet until things die down.She endangered others for her own reputation.}}$<br>
+  ${\textsf{\color{#FF0000} her response to victims coutersy is legal action and a poor response.}}$<br>
+  ${\textsf{\color{#FF0000} support the victims and boycott dandys world}}$<br>
+  <br>
  ${\textsf{\color{#E8C136} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
  ${\textsf{\color{#E8C136} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E8C136} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
