@@ -48,7 +48,7 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#FF0000} to someone's disability, mocking it, is disgusting.}}$<br>
  <br>
  ${\textsf{\color{#FF0000} ❗️ Guts and Blackpowder= Homophobic and misogynistic team. One of their devs released a now deleted}}$<br>
- ${\textsf{\color{#FF0000} video of devs in-acting the Palestine-Gaza bombing footage in unreleased map as a gag. }}$<br>
+ ${\textsf{\color{#FF0000} video of devs rein-acting the Palestine-Gaza bombing footage in unreleased map as a gag. }}$<br>
  <br>
  ${\textsf{\color{#FF0000} ❗️Roblox myth supporters/skins = a community built apon taking inspiration}}$<br>
 ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this legacy alive}}$<br>
