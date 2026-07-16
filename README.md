@@ -50,6 +50,7 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#FF0000} ❗️Roblox myth supporters/skins = a community built apon taking inspiration}}$<br>
 ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this legacy alive}}$<br>
  ${\textsf{\color{#FF0000} will continue the future abuse and harm of others.}}$<br>
+ ${\textsf{\color{#FF0000} TL:DR - Please kill yourself if you cosplay roblox myths <3 }}$<br>
  ${\textsf{\color{#FF0000} ❗️Kaiju paradise supporters/skins= repeated controversy }}$<br>
   ${\textsf{\color{#FF0000} from the devs involving grooming, zoophilia, pedophilia }}$<br>
   ${\textsf{\color{#FF0000} and vice versa. also originally was a fetish inspired game}}$<br>
