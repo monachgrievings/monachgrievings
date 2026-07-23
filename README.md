@@ -53,7 +53,7 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#FF0000} ❗️Roblox myth supporters/skins = a community built apon taking inspiration}}$<br>
 ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this legacy alive}}$<br>
  ${\textsf{\color{#FF0000} will continue the future abuse and harm of others.}}$<br>
- ${\textsf{\color{#FF0000} TL:DR - Please get doxxed and kill yourself if you cosplay roblox myths <3 }}$<br>
+ ${\textsf{\color{#FF0000} TL:DR - piss off and dni, this includes my friends. you guys are fucking gross and i hate your community more than anything.}}$<br>
   <br>
  ${\textsf{\color{#FF0000} ❗️Kaiju paradise supporters/skins= repeated controversy }}$<br>
   ${\textsf{\color{#FF0000} from the devs involving grooming, zoophilia, pedophilia }}$<br>
