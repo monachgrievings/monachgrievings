@@ -4,7 +4,7 @@ I DO NOT FRIEND OR FOLLOW PEOPLE UNDER 16.PLEASE INFORM ME OF YOUR AGE BEFORE
 <br> also DO NOT copy any of my skins or post them on pintrest, no you don't have my permission.
 <br> pfp art credit goes to https://x.com/skyt903, lordX model belongs to outcome memories.
 <br>
-<br> [FinnFxnn](https://github.com/FinnFxnn) and your friends, fuck off and stop spying on us lol 
+<br> [FinnFxnn](https://github.com/FinnFxnn) and your friends, fuck off you guys piss me off lol
 <br> <sub> links that aren't in this specific bio are for awareness purpose, advice at your own risk.<sub>
 <p align="center">
 <img src=https://files.catbox.moe/3wyu59.png
