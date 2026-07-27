@@ -43,7 +43,7 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  🔪Basic criteria https://basic-dni.crd.co/<br>
    ${\textsf{\color{#FF0000} ❗️HARD BLOCKS + reasoning }}$<br>
  <br>
- ${\textsf{\color{#FF0000} anyone associated/friends with @FinnFxnn }}$<br>
+ ${\textsf{\color{#FF0000} anyone associated/friends with @FinnFxnn (on github) }}$<br>
  ${\textsf{\color{#FF0000} communication must be a buzzword to you silver and your friends, fuck off and stay }}$<br>
  ${\textsf{\color{#FF0000} watching from the sidelines with your shitty friends lol.}}$<br>
  <br>
