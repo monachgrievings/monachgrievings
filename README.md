@@ -42,7 +42,12 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#B10000} 🪓Sonic area interact with awful caution, alot of you guys there are fucking gross.}}$<br>
  🔪Basic criteria https://basic-dni.crd.co/<br>
    ${\textsf{\color{#FF0000} ❗️HARD BLOCKS + reasoning }}$<br>
-  ${\textsf{\color{#FF0000} ❗️ Forsaken supporters= Controversy from the development team,}}$<br>
+ <br>
+ ${\textsf{\color{#FF0000} anyone associated/friends with @FinnFxnn }}$<br>
+ ${\textsf{\color{#FF0000} communication must be a buzzword to you silver and your friends, fuck off and stay }}$<br>
+ ${\textsf{\color{#FF0000} watching from the sidelines with your shitty friends lol.}}$<br>
+ <br>
+${\textsf{\color{#FF0000} ❗️ Forsaken supporters= Controversy from the development team,}}$<br>
  ${\textsf{\color{#FF0000} ex-owner is a criminal being funded by active players on the game,}}$<br>
  ${\textsf{\color{#FF0000} dangerous fan base also.}}$<br>
  <br>
