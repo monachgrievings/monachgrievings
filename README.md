@@ -2,7 +2,7 @@ I DO NOT FRIEND OR FOLLOW PEOPLE UNDER 16.PLEASE INFORM ME OF YOUR AGE BEFORE
 <br> all socials are 16+, mainly used for ponytown!, best viewed in desktop 
 <br> Please read my DNI list <3 
 <br> 
-<br> also DO NOT copy any of my skins or post them on pintrest, no you don't have my permission.
+<br> also DO NOT copy  or take inspo of my skins or post them on pintrest, no you don't have my permission.
 <br> pfp art credit goes to https://x.com/skyt903, lordX model belongs to outcome memories.
 <br>
 <br> <sub> links that aren't in this specific bio are for awareness purpose, advice at your own risk.<sub>
