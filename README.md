@@ -1,5 +1,4 @@
-
-<br> 
+<br> <img width="390" height="47" alt="image" src="https://github.com/user-attachments/assets/c0bb97b2-0a56-411e-b543-65eac444125c" />
 <br> DO NOT copy  or take inspo of my skins or post them on pintrest, no you don't have my permission.
 <br> pfp art credit goes to https://x.com/skyt903, lordX model belongs to outcome memories.
 <br>
@@ -23,8 +22,7 @@ ${\textsf{\color{#E8C136}I have very strong beliefs and will stick to my boundar
 ${\textsf{\color{#E8C136}I have a crude/uncensored type of humour and I will say slurs often.}}$<br>
 ${\textsf{\color{#E8C136} I have controversial interests and idealogy, be mindful.}}$<br>
 ${\textsf{\color{#E8C136}I DO NOT FRIEND OR FOLLOW PEOPLE UNDER 16.PLEASE INFORM ME OF YOUR AGE BEFORE}}$<br>
-${\textsf{\color{#E8C136} all socials are 16+}}$<br>
-${\textsf{\color{#B10000}Please read my DNI list}}$<br> 
+${\textsf{\color{#E8C136} all socials are 16+, view with caution as it'll have sensitive themes.}}$<br>
 ${\textsf{\color{#B10000} Communicate to me if you have an issue or to set your boundaries. }}$<br>
 ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#B10000} Mediorcre artist/animator/editor and hyper-sharing selfshipper}}$<br>
