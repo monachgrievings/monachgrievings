@@ -1,5 +1,5 @@
 <br> <img width="390" height="47" alt="image" src="https://github.com/user-attachments/assets/c0bb97b2-0a56-411e-b543-65eac444125c" />
-<br> DO NOT copy  or take inspo of my skins or post them on pintrest, no you don't have my permission.
+<br> DO NOT copy  or take inspo of my skins or post them on pinterest, no you don't have my permission.
 <br> pfp art credit goes to https://x.com/skyt903, lordX model belongs to outcome memories.
 <br>
 <br> <sub> links that aren't in this specific bio are for awareness purpose, advice at your own risk.<sub>
@@ -27,6 +27,10 @@ ${\textsf{\color{#B10000} Communicate to me if you have an issue or to set your 
 ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#B10000} Mediorcre artist/animator/editor and hyper-sharing selfshipper}}$<br>
  ${\textsf{\color{#B10000} big fan of mothcpu, gigglegunks and Kubz scout C-: }}$<br>
+ ${\textsf{\color{#B10000} diagnosed with dyslexia, Autism (high functioning), C-PTSD and Major depression.}}$<br>
+ ${\textsf{\color{#B10000} These will affect my stability heavily, be cautious when interacting. }}$<br>
+
+
  </details>
  <img src=https://files.catbox.moe/py3jdd.png align="right" width="25%">
  
