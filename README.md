@@ -78,7 +78,7 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
   ${\textsf{\color{#FF0000} support the victims and boycott dandys world}}$<br>
   <br>
  ${\textsf{\color{#E8C136} 🔪AI chatbot users/creators, non-sharing selfshippers}}$<br>
- ${\textsf{\color{#E8C136} 🔪True crime community memebers, Hazbin/Helluva supporters}}$<br>
+ ${\textsf{\color{#E8C136} 🔪True crime community members, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E8C136} 🔪TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
 </details>
 
