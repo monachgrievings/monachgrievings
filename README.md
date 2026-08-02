@@ -40,6 +40,7 @@ ${\textsf{\color{#E8C136}I block and hide freely, take it personally.  }}$<br>
  ${\textsf{\color{#B10000} 🪓Russians and Roblox arg players interact with caution.}}$<br>
  ${\textsf{\color{#B10000} just from past experience.}}$<br>
  ${\textsf{\color{#B10000} 🪓Sonic area interact with awful caution, alot of you guys there are fucking gross.}}$<br>
+ <br>
  🔪Basic criteria https://basic-dni.crd.co/<br>
    ${\textsf{\color{#FF0000} ❗️HARD BLOCKS + reasoning }}$<br>
  <br>
