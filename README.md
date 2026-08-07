@@ -41,7 +41,37 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>$${\color{#a54f30}I say slurs-I can reclaim}$$
 <br>$${\color{#a54f30}blunt-/-confrontational}$$
 <br>$${\color{#a54f30}controversial-opinions}$$
-<br>$${\color{#a54f30}I make sexual/darkhumoured-jokes}$$
-
-
+<br>$${\color{#a54f30}I make sexual/darkhumoured-jokes}$$</details>
+<br>
+<details><summary>$\color{#8b1111}{\textsf{ㅤDNIsㅤ}}$</summary>
+Basic criteria https://basic-dni.crd.co/<br>
+${\textsf{\color{#FF0000} ❗️HARD BLOCKS + reasoning }}$<br>
+ <br>
+${\textsf{\color{#FF0000} ❗️ Forsaken supporters= Controversy from the development team,}}$<br>
+ ${\textsf{\color{#FF0000} ex-owner is a criminal being funded by active players on the game,}}$<br>
+ ${\textsf{\color{#FF0000} dangerous fan base also.}}$<br>
+ <br>
+ ${\textsf{\color{#FF0000} ❗️ doombyfate supporters= despite the seizure death being a hoax, how the team responded}}$<br>
+ ${\textsf{\color{#FF0000} to someone's disability, mocking it, is disgusting.}}$<br>
+ <br>
+ ${\textsf{\color{#FF0000} ❗️ Guts and Blackpowder= Homophobic and misogynistic team. One of their devs released a now deleted}}$<br>
+ ${\textsf{\color{#FF0000} video of devs rein-acting the Palestine-Gaza bombing footage in unreleased map as a gag. }}$<br>
+ <br>
+ ${\textsf{\color{#FF0000} ❗️Roblox myth supporters/skins = a community built apon taking inspiration}}$<br>
+${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this legacy alive}}$<br>
+ ${\textsf{\color{#FF0000} will continue the future abuse and harm of others.}}$<br>
+ ${\textsf{\color{#FF0000} TL:DR - piss off and dni, this includes my friends. you guys are fucking gross and i hate your community more than anything.}}$<br>
+  <br>
+ ${\textsf{\color{#FF0000} ❗️Kaiju paradise supporters/skins= repeated controversy }}$<br>
+  ${\textsf{\color{#FF0000} from the devs involving grooming, zoophilia, pedophilia }}$<br>
+  ${\textsf{\color{#FF0000} and vice versa. also originally was a fetish inspired game}}$<br>
+  ${\textsf{\color{#FF0000} advertised to furry hate groups and children.}}$<br>
+  <br>
+  ${\textsf{\color{#FF0000} ❗️Pressure supporters/skins= with the recent allegations against zeal and }}$<br>
+  ${\textsf{\color{#FF0000} harassment towards ren, I want nothing to do with pressure}}$<br>
+  <br>
+ ${\textsf{\color{#E8C136} :knife:AI chatbot users/creators, non-sharing selfshippers}}$<br>
+ ${\textsf{\color{#E8C136} :knife:True crime community members, Hazbin/Helluva supporters}}$<br>
+ ${\textsf{\color{#E8C136} :knife:TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
+</details>
 
