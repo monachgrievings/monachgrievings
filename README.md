@@ -63,6 +63,12 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
  ${\textsf{\color{#FF0000} will continue the future abuse and harm of others.}}$<br>
  ${\textsf{\color{#FF0000} TL:DR - piss off and dni, this includes my friends. you guys are fucking gross and i hate your community more than anything.}}$<br>
   <br>
+   ${\textsf{\color{#FF0000} ❗️Roblox webseries/args }}$<br>
+  ${\textsf{\color{#FF0000} coming from someone who has been in this community for 3+ years }}$<br>
+    ${\textsf{\color{#FF0000} it is just another roblox myth community in disguise. }}$<br>
+  ${\textsf{\color{#FF0000} also alot of these people behind POPULAR series are terrible people}}$<br>
+    ${\textsf{\color{#FF0000} seildirectory espesicially.}}$<br>
+<br>
  ${\textsf{\color{#FF0000} ❗️Kaiju paradise supporters/skins= repeated controversy }}$<br>
   ${\textsf{\color{#FF0000} from the devs involving grooming, zoophilia, pedophilia }}$<br>
   ${\textsf{\color{#FF0000} and vice versa. also originally was a fetish inspired game}}$<br>
@@ -75,4 +81,14 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
  ${\textsf{\color{#E8C136} :knife:True crime community members, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E8C136} :knife:TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
 </details>
-
+<br> 
+<br> 
+<details><summary>$\color{#a54f30}{\textsf{ㅤ           my artㅤ}}$</summary>
+<img src=https://files.catbox.moe/b9fdu1.png>
+<img src=https://files.catbox.moe/g9no0a.png>
+<img src=https://files.catbox.moe/z5r06m.png>
+<img src=https://files.catbox.moe/0h9whz.png>
+  <img src=https://files.catbox.moe/t36u9p.png>
+  <img src=https://files.catbox.moe/lpi8dm.png>
+  <img src=https://files.catbox.moe/9jkk4p.jpg>
+</details>
