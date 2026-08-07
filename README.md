@@ -87,9 +87,10 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
 <details><summary>$\color{#a54f30}{\textsf{ㅤ           my artㅤ}}$</summary>
 <img src=https://files.catbox.moe/b9fdu1.png>
 <img src=https://files.catbox.moe/g9no0a.png>
-<img src=https://files.catbox.moe/z5r06m.png>
 <img src=https://files.catbox.moe/0h9whz.png>
   <img src=https://files.catbox.moe/t36u9p.png>
   <img src=https://files.catbox.moe/lpi8dm.png>
   <img src=https://files.catbox.moe/9jkk4p.jpg>
 </details>
+<br>
+<img src=https://files.catbox.moe/t4csb1.png>
