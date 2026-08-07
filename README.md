@@ -10,12 +10,13 @@ $\color{#a54f30}{\textsf{only adding 16+ , }}$  $\color{#a99963}{\textsf{C+H enc
   <br>
 <details><summary>$\color{#8b1111}{\textsf{ㅤㅤㅤㅤㅤHEADS UP!ㅤㅤ}}$</summary>
 　　　<br>
-$${\color{#a99963} do not follow me if you're associated with the following}$$
+$${\color{#a99963} do not follow me if ur associated with the following}$$
 https://github.com/HEDGYMAJIN
 https://github.com/lazikoly
 https://github.com/FinnFxnn
 https://github.com/Terrificorice
-Explanation: 
+<br> $${\color{#a99963} Explaination ⬇ }$$
+<br> https://files.catbox.moe/0juqxx.png
 
 
 </details>
