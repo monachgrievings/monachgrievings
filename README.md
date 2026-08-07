@@ -20,6 +20,8 @@ https://github.com/Terrificorice
 
 
 </details>
-<details><summary>$\color{#8b1111}{\textsf{ㅤㅤㅤㅤㅤplaceholderㅤ}}$</summary>
+<details><summary>$\color{#a54f30}{\textsf{ㅤ             ㅤTitles / Awardsㅤ}}$</summary>
 　　　<br>
-$${\color{#717170} place holder}$$</details>
+$${\color{#8b1111} Lord X-⬇ }$$</details>
+https://github.com/pt-medals
+https://github.com/title-town
