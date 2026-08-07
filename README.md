@@ -7,6 +7,9 @@ $\color{#8d251a}{\textsf{Monach / Grieth}} \color{#a54f30}{\textsf{it / itself
 $\color{#a99963}{\textsf{Hypersharing Selfshipper}}$
 $\color{#8d251a}{\textsf{Concept artist for numerous rblx games}}$
 $\color{#a54f30}{\textsf{only adding 16+ , }}$  $\color{#a99963}{\textsf{C+H enc!}}$
+<br>$\color{#8d251a}{\textsf{INSPO OKAY , }}$
+<br>$\color{#a54f30}{\textsf{no one has permission}}$
+<br>$\color{#a99963}{\textsf{to upload any skins on any website}}$
 <tr>
 <td>
   <br>
@@ -36,7 +39,7 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>
 <details><summary>$\color{#a99963}{\textsf{ㅤ      Before you INTㅤ}}$</summary>
 <br>$${\color{#8b1111}I say slurs I can reclaim}$$
-<br>$${\color{#8b1111}blunt and confrontational}$$
-<br>$${\color{#8b1111}controversial opinions}$$
+<br>$${\color{#8b1111}blunt-/-confrontational}$$
+<br>$${\color{#8b1111}controversial-opinions}$$
 
 
