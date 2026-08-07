@@ -11,9 +11,9 @@ $\color{#a54f30}{\textsf{only adding 16+ , }}$  $\color{#a99963}{\textsf{C+H enc
 <br>$\color{#8d251a}{\textsf{INSPO OKAY , }}$
 <br>$\color{#a54f30}{\textsf{no one has permission}}$
 <br>$\color{#a99963}{\textsf{to upload any skins on any website}}$
-<br> 
-  <td>
-  <br>
+<br> sign ata .ᐟ https://monachgrievings.atabook.org
+<br> draw for me .ᐟ https://dellulification.straw.page
+<br>
 <details><summary>$\color{#8b1111}{\textsf{ㅤㅤㅤㅤㅤHEADS UP!ㅤㅤ}}$</summary>
 <br>$${\color{#a99963} do not follow}$$
 <br>$${\color{#a99963} if youre-associated}$$
