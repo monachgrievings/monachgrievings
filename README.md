@@ -20,8 +20,11 @@ https://github.com/Terrificorice
 
 
 </details>
+<br>
 <details><summary>$\color{#a54f30}{\textsf{ㅤ             ㅤTitles / Awardsㅤ}}$</summary>
 　　　<br>
-$${\color{#8b1111} Lord X-⬇ }$$</details>
-https://github.com/pt-medals
-https://github.com/title-town
+$${\color{#8b1111} Lord X-⬇ }$$
+<br>https://github.com/pt-medals
+<br>https://github.com/title-town
+<br>$${\color{#8b1111} Lord X yumes-⬇ }$$
+<br>https://github.com/pt-medals2</details>
