@@ -38,8 +38,10 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>https://github.com/pt-walk-of-fame</details>
 <br>
 <details><summary>$\color{#a99963}{\textsf{ㅤ      Before you INTㅤ}}$</summary>
-<br>$${\color{#8b1111}I say slurs I can reclaim}$$
-<br>$${\color{#8b1111}blunt-/-confrontational}$$
-<br>$${\color{#8b1111}controversial-opinions}$$
+<br>$${\color{#a54f30}I say slurs-I can reclaim}$$
+<br>$${\color{#a54f30}blunt-/-confrontational}$$
+<br>$${\color{#a54f30}controversial-opinions}$$
+<br>$${\color{#a54f30}I make sexual/darkhumoured-jokes}$$
+
 
 
