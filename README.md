@@ -1,3 +1,4 @@
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1700&color=F7F4CC&width=435&lines=%22+I'm+a+lovesick+junkie!+%2C+;begging+you+for;+one+final+puff.%E1%90%9F+%E2%9D%A4%EF%B8%8E%E2%80%AC%22)](https://git.io/typing-svg)
 <p> <img src=https://files.catbox.moe/0icmxs.gif align="center"/p>
 <img src=https://files.catbox.moe/opzk7b.png align="left" width="60%"><p align="center">
 <br>
@@ -10,8 +11,8 @@ $\color{#a54f30}{\textsf{only adding 16+ , }}$  $\color{#a99963}{\textsf{C+H enc
 <br>$\color{#8d251a}{\textsf{INSPO OKAY , }}$
 <br>$\color{#a54f30}{\textsf{no one has permission}}$
 <br>$\color{#a99963}{\textsf{to upload any skins on any website}}$
-<tr>
-<td>
+<br> 
+  <td>
   <br>
 <details><summary>$\color{#8b1111}{\textsf{ㅤㅤㅤㅤㅤHEADS UP!ㅤㅤ}}$</summary>
 <br>$${\color{#a99963} do not follow}$$
