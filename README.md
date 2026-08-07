@@ -22,8 +22,8 @@ https://github.com/lazikoly
 https://github.com/FinnFxnn
 https://github.com/Terrificorice
   <br>
-<br> $${\color{#a99963} Explaination ⬇ }$$
-<br> https://files.catbox.moe/0juqxx.png</details>
+<br>$${\color{#a99963} Explaination ⬇ }$$
+<br>https://files.catbox.moe/zg75w8.png</details>
 
 <br>
 <details><summary>$\color{#a54f30}{\textsf{ㅤ             ㅤTitles / Awardsㅤ}}$</summary>
