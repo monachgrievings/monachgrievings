@@ -83,7 +83,6 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
  ${\textsf{\color{#E8C136} :knife:TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
 </details>
 <br> 
-<br> 
 <details><summary>$\color{#a54f30}{\textsf{ㅤ           my artㅤ}}$</summary>
 <img src=https://files.catbox.moe/b9fdu1.png>
 <img src=https://files.catbox.moe/g9no0a.png>
