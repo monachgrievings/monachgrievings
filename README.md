@@ -21,12 +21,14 @@ $\color{#a54f30}{\textsf{only adding 16+ , }}$  $\color{#a99963}{\textsf{C+H enc
 <br>$${\color{#a99963} if youre-associated}$$
 <br>$${\color{#a99963} with ⬇ }$$
 <br>https://github.com/HEDGYMAJIN
-https://github.com/lazikoly
 https://github.com/FinnFxnn
 https://github.com/Terrificorice
   <br>
 <br>$${\color{#a99963} Explaination ⬇ }$$
-<br>https://files.catbox.moe/zg75w8.png</details>
+<br>https://files.catbox.moe/zg75w8.png
+<br> <br>$${\color{#a99963} response-to-lazi ⬇}$$
+<br> https://files.catbox.moe/y8s2j3.png</details>
+
 
 <br>
 <details><summary>$\color{#a54f30}{\textsf{ㅤ             ㅤTitles / Awardsㅤ}}$</summary>
