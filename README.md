@@ -14,17 +14,17 @@ $\color{#a54f30}{\textsf{only adding 16+ , }}$  $\color{#a99963}{\textsf{C+H enc
 <td>
   <br>
 <details><summary>$\color{#8b1111}{\textsf{ㅤㅤㅤㅤㅤHEADS UP!ㅤㅤ}}$</summary>
-　　　<br>
-$${\color{#a99963} do not follow me if ur associated with the following}$$
-https://github.com/HEDGYMAJIN
+<br>$${\color{#a99963} do not follow}$$
+<br>$${\color{#a99963} if youre-associated}$$
+<br>$${\color{#a99963} with ⬇ }$$
+<br>https://github.com/HEDGYMAJIN
 https://github.com/lazikoly
 https://github.com/FinnFxnn
 https://github.com/Terrificorice
+  <br>
 <br> $${\color{#a99963} Explaination ⬇ }$$
-<br> https://files.catbox.moe/0juqxx.png
+<br> https://files.catbox.moe/0juqxx.png</details>
 
-
-</details>
 <br>
 <details><summary>$\color{#a54f30}{\textsf{ㅤ             ㅤTitles / Awardsㅤ}}$</summary>
 　　　<br>
