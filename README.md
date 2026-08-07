@@ -28,7 +28,7 @@ https://github.com/Terrificorice
 <br>https://files.catbox.moe/zg75w8.png
 <br> <br>$${\color{#a99963} responses-lol⬇}$$
 <br> https://files.catbox.moe/y8s2j3.png
-<br>https://files.catbox.moe/aomlqq.png</details>
+<br>https://files.catbox.moe/94p3go.png</details>
 
 
 <br>
