@@ -41,7 +41,8 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>$${\color{#8b1111} Lord X yumes-⬇ }$$
 <br>https://github.com/pt-medals2
 <br>$${\color{#8b1111} 2011x-⬇ }$$
-<br>https://github.com/pt-walk-of-fame</details>
+<br>https://github.com/pt-walk-of-fame
+<br>https://github.com/ponytowncosplayers</details>
 <br>
 <details><summary>$\color{#a99963}{\textsf{ㅤ      Before you INTㅤ}}$</summary>
 <br>$${\color{#a54f30}I say slurs-I can reclaim}$$
