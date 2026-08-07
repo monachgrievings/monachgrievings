@@ -1,6 +1,8 @@
 <p> <img src=https://files.catbox.moe/0icmxs.gif align="center"/p>
 <img src=https://files.catbox.moe/opzk7b.png align="left" width="60%"><p align="center">
 <br>
+<sub>Crowded lol</sub>
+<br>
 $\color{#8d251a}{\textsf{Monach / Grieth}} \color{#a54f30}{\textsf{it / itself}}  \color{#a99963}{\textsf{18 }}$
 $\color{#a99963}{\textsf{Hypersharing Selfshipper}}$
 $\color{#8d251a}{\textsf{Concept artist for numerous rblx games}}$
@@ -33,3 +35,8 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>https://github.com/pt-walk-of-fame</details>
 <br>
 <details><summary>$\color{#a99963}{\textsf{ㅤ      Before you INTㅤ}}$</summary>
+<br>$${\color{#8b1111}I say slurs I can reclaim}$$
+<br>$${\color{#8b1111}blunt and confrontational}$$
+<br>$${\color{#8b1111}controversial opinions}$$
+
+
