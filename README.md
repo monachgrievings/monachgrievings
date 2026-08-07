@@ -3,6 +3,7 @@
 <img src=https://files.catbox.moe/opzk7b.png align="left" width="60%"><p align="center">
 <br>
 <sub>Crowded lol</sub>
+<sub>best viewed on desktop</sub>
 <br>
 $\color{#8d251a}{\textsf{Monach / Grieth}} \color{#a54f30}{\textsf{it / itself}}  \color{#a99963}{\textsf{18 }}$
 $\color{#a99963}{\textsf{Hypersharing Selfshipper}}$
