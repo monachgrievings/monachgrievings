@@ -23,6 +23,8 @@ $\color{#a54f30}{\textsf{only adding 16+ , }}$  $\color{#a99963}{\textsf{C+H enc
 <br>https://github.com/HEDGYMAJIN
 https://github.com/FinnFxnn
 https://github.com/Terrificorice
+<br>$${\color{#a99963} DO-NOT-HARASS-BRO}$$
+
 <br>
 <br>$${\color{#a99963} Explaination ⬇ }$$
 <br>https://files.catbox.moe/zg75w8.png
