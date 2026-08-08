@@ -22,7 +22,13 @@ $\color{#a54f30}{\textsf{only adding 16+ , }}$  $\color{#a99963}{\textsf{C+H enc
 <br>$${\color{#a99963} with ⬇ }$$
 <br>https://github.com/HEDGYMAJIN
 https://github.com/FinnFxnn
-https://github.com/Terrificorice</details>
+https://github.com/Terrificorice
+<br>
+<br>$${\color{#a99963} Explaination ⬇ }$$
+<br>https://files.catbox.moe/zg75w8.png
+<br> <br>$${\color{#a99963} responses-lol⬇-zoomin-2-read}$$
+<br> https://files.catbox.moe/y8s2j3.png
+<br>https://files.catbox.moe/5p6f7c.png</details>
 
 
 <br>
