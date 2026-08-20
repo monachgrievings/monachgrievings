@@ -47,10 +47,10 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>https://github.com/ponytowncosplayers</details>
 <br>
 <details><summary>$\color{#a99963}{\textsf{ㅤ      Before you INTㅤ}}$</summary>
-<br>$${\color{#a54f30}I say slurs-I can reclaim}$$
+<br>$${\color{#a54f30}I say slurs-I-can-reclaim}$$
 <br>$${\color{#a54f30}blunt-/-confrontational}$$
 <br>$${\color{#a54f30}controversial-opinions}$$
-<br>$${\color{#a54f30}I make sexual/darkhumoured-jokes}$$</details>
+<br>$${\color{#a54f30}I make sexual/dark-humoured-jokes}$$</details>
 <br>
 <details><summary>$\color{#8b1111}{\textsf{ㅤDNIsㅤ}}$</summary>
 Basic criteria https://basic-dni.crd.co/<br>
