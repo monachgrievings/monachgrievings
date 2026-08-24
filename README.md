@@ -77,6 +77,7 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
 <details><summary>$\color{#a54f30}{\textsf{ㅤ           my artㅤ}}$</summary>
 <br> Formatted from Recent to Old work.
  <br> please scroll down cause this will be lenghty. QUICK THERES SPAMTENNA BELOW!!!
+ <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1991.png>
 <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1940.webp>
 <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1561.webp>
  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1692.webp>
