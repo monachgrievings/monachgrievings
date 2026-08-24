@@ -16,16 +16,6 @@ $\color{#a54f30}{\textsf{only adding 16+ , }}$  $\color{#a99963}{\textsf{C+H enc
 <br> sign ata .ᐟ https://monachgrievings.atabook.org
 <br> draw for me .ᐟ https://dellulification.straw.page
 <br>
-<details><summary>$\color{#8b1111}{\textsf{ㅤㅤㅤㅤㅤHEADS UP!ㅤㅤ}}$</summary>
-<br>$${\color{#a99963} do not follow}$$
-<br>$${\color{#a99963} if youre-associated}$$
-<br>$${\color{#a99963} with ⬇ }$$
-<br>https://github.com/HEDGYMAJIN
-https://github.com/FinnFxnn
-https://github.com/Terrificorice
-<br>$${\color{#a99963} DO-NOT-HARASS-BRO}$$</details>
-
-
 <br>
 <details><summary>$\color{#a54f30}{\textsf{ㅤ             ㅤTitles / Awardsㅤ}}$</summary>
 　　　<br>
