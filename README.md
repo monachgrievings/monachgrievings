@@ -44,7 +44,6 @@ Basic criteria https://basic-dni.crd.co/<br>
 ${\textsf{\color{#FF0000} ❗️HARD BLOCKS + reasoning }}$<br>
  <br>
 ${\textsf{\color{#FF0000} ❗️ Forsaken supporters= Controversy from the development team,}}$<br>
- ${\textsf{\color{#FF0000} ex-owner is a criminal being funded by active players on the game,}}$<br>
  ${\textsf{\color{#FF0000} dangerous fan base also.}}$<br>
  <br>
  ${\textsf{\color{#FF0000} ❗️ doombyfate supporters= despite the seizure death being a hoax, how the team responded}}$<br>
