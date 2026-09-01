@@ -13,6 +13,7 @@ $\texttt{\color{#c099a8}𝐌𝐨𝐧𝐚𝐜𝐡 𓏻 𝐆𝐫𝐢𝐞𝐭𝐡 �
 <details><summary>$\color{#c099a8}{\textsf{𝘉𝘌𝘍𝘖𝘙𝘌 𝘠𝘖𝘜 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛 }}$</summary>
   <br> $\texttt{\color{#872866}𝘐 𝘚𝘈𝘠 𝘚𝘓𝘜𝘙𝘚 𝘐 𝘊𝘈𝘕 𝘙𝘌𝘊𝘓𝘈𝘐𝘔}$ 
   <br> $\texttt{\color{#872866}𝘜𝘚𝘌 𝘛𝘖𝘕𝘌𝘛𝘈𝘎𝘚 𝘈𝘙𝘖𝘜𝘕𝘋 𝘔𝘌!}$
+    <br> $\texttt{\color{#872866}𝐈 𝐀𝐌 𝐍𝐎𝐓 𝐀𝐅𝐑𝐀𝐈𝐃 𝐓𝐎 𝐂𝐎𝐍𝐅𝐑𝐎𝐍𝐓 𝐎𝐑 𝐂𝐀𝐋𝐋 𝐀𝐍𝐘𝐎𝐍𝐄 𝐎𝐔𝐓.}$
   <br> $\texttt{\color{#872866}𝘔𝘠 𝘏𝘜𝘔𝘖𝘙 𝘐𝘚 𝘊𝘙𝘜𝘋𝘌 , 𝘋𝘈𝘙𝘒 𝘈𝘕𝘋 𝘜𝘕𝘊𝘌𝘕𝘚𝘖𝘙𝘌𝘋!}$ 
   <br> $\texttt{\color{#671f5a} 𓏻 !! 𝐃𝐎 𝐍𝐎𝐓 𝐖𝐎𝐑𝐑𝐘 𝐎𝐑 𝐇𝐄𝐒𝐈𝐓𝐀𝐓𝐄 𝐓𝐎 𝐓𝐄𝐋𝐋 𝐌𝐄 𝐓𝐎 𝐒𝐓𝐎𝐏 𝐂𝐎𝐌𝐏𝐋𝐄𝐓𝐄𝐋𝐘 !! }$
     <br> $\texttt{\color{#872866}𝘐 𝘞𝘐𝘓𝘓 𝘓𝘐𝘒𝘌𝘓𝘠 𝘕𝘖𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛 𝘞𝘐𝘛𝘏 𝘠𝘖𝘜 𝘐𝘍 1) 𝘚𝘌𝘌𝘕 𝘈 𝘉𝘌𝘞𝘈𝘙𝘌 𝘗𝘖𝘚𝘛 𝘈𝘉𝘖𝘜𝘛 𝘠𝘖𝘜! 2) 𝘠𝘖𝘜'𝘝𝘌 𝘏𝘈𝘙𝘔𝘌𝘋 𝘈𝘕𝘠 𝘖𝘍 𝘔𝘠 𝘍𝘙𝘐𝘌𝘕𝘋𝘚!}$
@@ -20,7 +21,13 @@ $\texttt{\color{#c099a8}𝐌𝐨𝐧𝐚𝐜𝐡 𓏻 𝐆𝐫𝐢𝐞𝐭𝐡 �
 
   <details><summary>$\color{#db0035}{\textsf{(𝐑𝐄𝐀𝐃) 𝐃𝐎 𝐍𝐎𝐓 𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓!!}}$</summary>
     <br>
-     ${\textsf{\color{#FF0000} ❗️Roblox myth supporters/skins = a community built apon taking inspiration}}$<br>
+      ${\textsf{\color{#FF0000} Darkshippers, Radqueers/transmeds, TERFS/radical exclusionists, Russians (from ALOT of experiences), }}$<br>
+      ${\textsf{\color{#FF0000} Boundary breakers of any sorts, ex friends, if you make nsfw jokes in public on the safe servers.}}$<br>
+          ${\textsf{\color{#FF0000} rape/sexual assault, grooming or abuse jokes around me.}}$<br>
+    ${\textsf{\color{#FF0000} basic criteria (Racist, Facists, Anti-LGBTQIA+ (including exclusionists of microlabels n such) supporters of selfharm/harmful topics}}$<br>
+
+<br>
+   ${\textsf{\color{#FF0000} ❗️Roblox myth supporters/skins = a community built apon taking inspiration}}$<br>
 ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this legacy alive}}$<br>
  ${\textsf{\color{#FF0000} will continue the future abuse and harm of others.}}$<br>
  ${\textsf{\color{#FF0000} TL:DR - You are actively supporting pedophiles, groomers, abusers or ALL of the above by continuing to spread their creations which were either}}$<br>
@@ -56,7 +63,7 @@ ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the 
     <br> 
  ${\textsf{\color{#FF0000} ❗️Kaiju paradise supporters/skins= repeated controversy }}$<br>
   ${\textsf{\color{#FF0000} from the devs involving grooming, zoophilia, pedophilia }}$<br>
-  ${\textsf{\color{#FF0000} and vice versa. also originally was a fetish inspired game}}$<br>
+  ${\textsf{\color{#FF0000} and vice versa. also originally was a fetish/ shotacon inspired game}}$<br>
   ${\textsf{\color{#FF0000} advertised to furry hate groups and children.}}$<br>
   <br>
     <br>
@@ -83,7 +90,7 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>https://github.com/ponytowncosplayers
 <br>https://github.com/pt-fashion
 <br>https://github.com/style-town</details>
-<details><summary>$\color{#671f5a}{\textsf{ㅤ           my artㅤ}}$</summary>
+<details><summary>$\color{#872866}{\textsf{ㅤ           my artㅤ}}$</summary>
 <br> Formatted from Recent to Old work.
  <br> please scroll down cause this will be lenghty. QUICK THERES SPAMTENNA BELOW!!!
  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1991.png>
