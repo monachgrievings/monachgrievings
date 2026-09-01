@@ -22,7 +22,7 @@ $\texttt{\color{#c099a8}𝐌𝐨𝐧𝐚𝐜𝐡 𓏻 𝐆𝐫𝐢𝐞𝐭𝐡 �
      ${\textsf{\color{#FF0000} ❗️Roblox myth supporters/skins = a community built apon taking inspiration}}$<br>
 ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this legacy alive}}$<br>
  ${\textsf{\color{#FF0000} will continue the future abuse and harm of others.}}$<br>
- ${\textsf{\color{#FF0000} TL:DR - You are actively supporting pedophiles, groomers,abusers or ALL of the above by continuing to spread their creations which were either}}$<br>
+ ${\textsf{\color{#FF0000} TL:DR - You are actively supporting pedophiles, groomers, abusers or ALL of the above by continuing to spread their creations which were either}}$<br>
    ${\textsf{\color{#FF0000} 1) secret personas to roleplay their fantasizes or make their projections into reality or 2) used their popularity of their projects to harm others.}}$<br>
   <br> ${\textsf{\color{#FF0000} LINKS TO CONTROVERSY ON POPULAR ROBLOX MYTHS}}$
     <br> https://mythcommunity.miraheze.org/wiki/TlPPYSHIP
@@ -30,9 +30,12 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
     <br> https://mythcommunity.miraheze.org/wiki/74j
   <br> https://mythcommunity.miraheze.org/wiki/Chuck_Lloyd
     <br> https://mythcommunity.miraheze.org/wiki/1_AD
+    <br> https://mythcommunity.miraheze.org/wiki/Kazdam
+    <br> https://mythcommunity.miraheze.org/wiki/The_Days_Union
+    <br>https://mythcommunity.miraheze.org/wiki/Saint_Abida_Tribe 
     <br>
     <br>
-${\textsf{\color{#FF0000} ❗️ Forsaken supporters= Controversy from the development team,}}$<br>
+${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the development team,}}$<br>
  ${\textsf{\color{#FF0000} ex-owner is a weird MORON being funded by active players on the game,}}$<br>
  ${\textsf{\color{#FF0000} dangerous fan base also.}}$<br>
  <br>
