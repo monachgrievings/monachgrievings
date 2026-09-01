@@ -3,12 +3,29 @@
 </p>
 <img src=https://file.garden/Z75MHo7PbGBcqHFG/ezgif.com-gif-maker%202.gif aligh="left" width=57% 57%; height: auto;" //>
 <p align="right"> 
-$\texttt{\color{#c099a8}𝐌𝐨𝐧𝐚𝐜𝐡 𓏻 𝐆𝐫𝐢𝐞𝐭𝐡 𓏻 𝟏𝟖 }$ $\texttt{\color{#872866}𝐈𝐓/𝐈𝐓𝐒𝐄𝐋𝐅 + 𝐍𝐎𝐍-𝐇𝐔𝐌𝐀𝐍 𝐓𝐄𝐑𝐌𝐒}$ $\texttt{\color{#671f5a}-𝟏𝟔+ 𝐃𝐍𝐈}$
+$\texttt{\color{#c099a8}𝐌𝐨𝐧𝐚𝐜𝐡 𓏻 𝐆𝐫𝐢𝐞𝐭𝐡 𝟏𝟖 }$ $\texttt{\color{#872866} 𓏻 𝐈𝐓/𝐈𝐓𝐒𝐄𝐋𝐅 + 𝐍𝐎𝐍-𝐇𝐔𝐌𝐀𝐍 𝐓𝐄𝐑𝐌𝐒}$ $\texttt{\color{#671f5a}-𝟏𝟔+ 𝐃𝐍𝐈}$
 <br> $\texttt{\color{#c099a8}𝐍𝐎 𝐎𝐍𝐄!! 𝐇𝐀𝐒 𝐏𝐄𝐑𝐌𝐈𝐒𝐒𝐈𝐎𝐍}$ $\texttt{\color{#872866}𝐓𝐎 𝐔𝐏𝐋𝐎𝐀𝐃 𝐌𝐘 𝐖𝐎𝐑𝐊 𝐀𝐍𝐘𝐖𝐇𝐄𝐑𝐄}$ $\texttt{\color{#671f5a}𝐎𝐍 𝐏𝐈𝐍𝐓𝐑𝐄𝐒𝐓 𝐎𝐑 𝐓𝐈𝐊𝐓𝐎𝐊.}$
 </p>
+<p>  $\texttt{\color{#671f5a} 𓏻 𝐈𝐍𝐒𝐏𝐈𝐑𝐀𝐓𝐈𝐎𝐍 𝐈𝐒 𝐀-𝐎𝐊𝐀𝐘! 𝐉𝐔𝐒𝐓 𝐃𝐎𝐍'𝐓 𝐅𝐋𝐀𝐓 𝐎𝐔𝐓 𝐂𝐎𝐏𝐘 𝐌𝐘 𝐖𝐎𝐑𝐊.}$ $\texttt{\color{#872866}𝐂+𝐇 𝐎𝐊𝐀𝐘 𝐔𝐍𝐋𝐄𝐒𝐒 𝐒𝐓𝐀𝐓𝐄𝐃 𝐈𝐍 𝐍𝐀𝐌𝐄!}$ $\texttt{\color{#c099a8}𝐒𝐔𝐏𝐄𝐑 𝐌𝐄𝐆𝐀 𝐖𝐎𝐊𝐄!}$  </p>
+<p>$\texttt{\color{#872866} 𓏻 𝐁𝐋𝐀𝐒𝐈𝐀𝐍 (𝐓𝐑𝐈𝐍𝐈𝐃𝐀𝐃𝐈𝐀𝐍 + 𝐅𝐈𝐋𝐈𝐏𝐈𝐍𝐎) 𝐂𝐀𝐍𝐀𝐃𝐈𝐀𝐍 𝐂𝐈𝐓𝐈𝐙𝐄𝐍 𓏻 }$ $\texttt{\color{#c099a8}𝐀𝐑𝐓𝐈𝐒𝐓 𝐀𝐍𝐃 𝐖𝐑𝐈𝐓𝐄𝐑 𓏻 }$ $\texttt{\color{#671f5a}-𝟏𝟔+ 𝐃𝐍𝐈}$ </p>
 <br>
+<details><summary>$\color{#c099a8}{\textsf{𝘉𝘌𝘍𝘖𝘙𝘌 𝘠𝘖𝘜 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛 }}$</summary>
+  <br> $\texttt{\color{#872866}𝘐 𝘚𝘈𝘠 𝘚𝘓𝘜𝘙𝘚 𝘐 𝘊𝘈𝘕 𝘙𝘌𝘊𝘓𝘈𝘐𝘔}$ 
+  <br> $\texttt{\color{#872866}𝘜𝘚𝘌 𝘛𝘖𝘕𝘌𝘛𝘈𝘎𝘚 𝘈𝘙𝘖𝘜𝘕𝘋 𝘔𝘌!}$
+  <br> $\texttt{\color{#872866}𝘔𝘠 𝘏𝘜𝘔𝘖𝘙 𝘐𝘚 𝘊𝘙𝘜𝘋𝘌 , 𝘋𝘈𝘙𝘒 𝘈𝘕𝘋 𝘜𝘕𝘊𝘌𝘕𝘚𝘖𝘙𝘌𝘋!}$ 
+  <br> $\texttt{\color{#671f5a} 𓏻 !! 𝐃𝐎 𝐍𝐎𝐓 𝐖𝐎𝐑𝐑𝐘 𝐎𝐑 𝐇𝐄𝐒𝐈𝐓𝐀𝐓𝐄 𝐓𝐎 𝐓𝐄𝐋𝐋 𝐌𝐄 𝐓𝐎 𝐒𝐓𝐎𝐏 𝐂𝐎𝐌𝐏𝐋𝐄𝐓𝐄𝐋𝐘 !! }$
+    <br> $\texttt{\color{#872866}𝘐 𝘞𝘐𝘓𝘓 𝘓𝘐𝘒𝘌𝘓𝘠 𝘕𝘖𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛 𝘞𝘐𝘛𝘏 𝘠𝘖𝘜 𝘐𝘍 1) 𝘚𝘌𝘌𝘕 𝘈 𝘉𝘌𝘞𝘈𝘙𝘌 𝘗𝘖𝘚𝘛 𝘈𝘉𝘖𝘜𝘛 𝘠𝘖𝘜! 2) 𝘠𝘖𝘜'𝘝𝘌 𝘏𝘈𝘙𝘔𝘌𝘋 𝘈𝘕𝘠 𝘖𝘍 𝘔𝘠 𝘍𝘙𝘐𝘌𝘕𝘋𝘚!}$
+    <br> $\texttt{\color{#872866}𝘐'𝘔 𝘝𝘌𝘙𝘠 𝘗𝘙𝘖𝘛𝘌𝘊𝘛𝘐𝘝𝘌 𝘈𝘉𝘖𝘜𝘛 𝘔𝘠 𝘍𝘙𝘐𝘌𝘕𝘋𝘚!}$ </details>
 
 
 
-[<img width="230" height="230" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901090049.png" />](https://dellulification.straw.page/) [<img width="230" height="230" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901090728.png" />](https://monachgrievings.atabook.org//)
+
+
+
+
+
+  
+[<img width="270" height="270" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901090049.png" />](https://dellulification.straw.page/)       [<img width="270" height="270" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901090728.png" />](https://monachgrievings.atabook.org//)        [<img width="270" height="270" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901091257.png" />](https://x.com/ROTTEDFACADE/) 
+
+
 
