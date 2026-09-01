@@ -35,6 +35,7 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
     <br> https://mythcommunity.miraheze.org/wiki/The_Days_Union
     <br>https://mythcommunity.miraheze.org/wiki/Saint_Abida_Tribe 
     <br>
+    <br>
      ${\textsf{\color{#FF0000} ❗️Roblox ARGS = A community that arisen to take refugee away from the myth community yet-}}$<br>
      ${\textsf{\color{#FF0000} keeping around the same harmful individuals or inspiration from roblox myths}}$<br>
      ${\textsf{\color{#FF0000} aside from the fact I have insider info on the development behind popular args (seildirectory especially) }}$<br>
