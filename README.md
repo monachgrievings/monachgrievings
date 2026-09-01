@@ -40,11 +40,12 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
      ${\textsf{\color{#FF0000} keeping around the same harmful individuals or inspiration from roblox myths}}$<br>
      ${\textsf{\color{#FF0000} aside from the fact I have insider info on the development behind popular args (seildirectory especially) }}$<br>
      ${\textsf{\color{#FF0000} Most of the community/fans are shitty too. It's bad if a community collectively has to make}}$<br>
-    ${\textsf{\color{#FF0000} posts about being normal and having online etiquette. Fuck off disrespectfully }}$<br>
-
+    ${\textsf{\color{#FF0000} posts about being normal and having online etiquette. Fuck off disrespectfully (CLOSE friends excluded) }}$<br>
+<br>
 ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the development team,}}$<br>
  ${\textsf{\color{#FF0000} ex-owner is a weird MORON being funded by active players on the game,}}$<br>
  ${\textsf{\color{#FF0000} dangerous fan base also.(friends are excluded from this)}}$<br>
+ <br>
  <br>
  ${\textsf{\color{#FF0000} ❗️ doombyfate supporters= despite the seizure death being a hoax, how the team responded}}$<br>
  ${\textsf{\color{#FF0000} to someone's disability, mocking it, is disgusting.}}$<br>
@@ -58,9 +59,11 @@ ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the 
   ${\textsf{\color{#FF0000} and vice versa. also originally was a fetish inspired game}}$<br>
   ${\textsf{\color{#FF0000} advertised to furry hate groups and children.}}$<br>
   <br>
+    <br>
   ${\textsf{\color{#FF0000} ❗️Pressure supporters/skins= with the recent allegations against zeal and }}$<br>
   ${\textsf{\color{#FF0000} harassment towards ren, I want nothing to do with pressure}}$<br>
   <br>
+    <br>
  ${\textsf{\color{#E8C136} :knife:AI chatbot users/creators, non-sharing selfshippers}}$<br>
  ${\textsf{\color{#E8C136} :knife:True crime community members, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E8C136} :knife:TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
