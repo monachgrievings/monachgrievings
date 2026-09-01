@@ -37,7 +37,7 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
     <br>
 ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the development team,}}$<br>
  ${\textsf{\color{#FF0000} ex-owner is a weird MORON being funded by active players on the game,}}$<br>
- ${\textsf{\color{#FF0000} dangerous fan base also.}}$<br>
+ ${\textsf{\color{#FF0000} dangerous fan base also.(friends are excluded from this)}}$<br>
  <br>
  ${\textsf{\color{#FF0000} ❗️ doombyfate supporters= despite the seizure death being a hoax, how the team responded}}$<br>
  ${\textsf{\color{#FF0000} to someone's disability, mocking it, is disgusting.}}$<br>
