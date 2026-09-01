@@ -8,7 +8,8 @@ $\texttt{\color{#c099a8}𝐌𝐨𝐧𝐚𝐜𝐡 𓏻 𝐆𝐫𝐢𝐞𝐭𝐡 �
 </p>
 <p>  $\texttt{\color{#671f5a} 𓏻 𝐈𝐍𝐒𝐏𝐈𝐑𝐀𝐓𝐈𝐎𝐍 𝐈𝐒 𝐀-𝐎𝐊𝐀𝐘! 𝐉𝐔𝐒𝐓 𝐃𝐎𝐍'𝐓 𝐅𝐋𝐀𝐓 𝐎𝐔𝐓 𝐂𝐎𝐏𝐘 𝐌𝐘 𝐖𝐎𝐑𝐊.}$ $\texttt{\color{#872866}𝐂+𝐇 𝐎𝐊𝐀𝐘 𝐔𝐍𝐋𝐄𝐒𝐒 𝐒𝐓𝐀𝐓𝐄𝐃 𝐈𝐍 𝐍𝐀𝐌𝐄!}$ $\texttt{\color{#c099a8}𝐒𝐔𝐏𝐄𝐑 𝐌𝐄𝐆𝐀 𝐖𝐎𝐊𝐄!}$  </p>
 <p>$\texttt{\color{#872866} 𓏻 𝐁𝐋𝐀𝐒𝐈𝐀𝐍 (𝐓𝐑𝐈𝐍𝐈𝐃𝐀𝐃𝐈𝐀𝐍 + 𝐅𝐈𝐋𝐈𝐏𝐈𝐍𝐎) 𝐂𝐀𝐍𝐀𝐃𝐈𝐀𝐍 𝐂𝐈𝐓𝐈𝐙𝐄𝐍 𓏻 }$ $\texttt{\color{#c099a8}𝐀𝐑𝐓𝐈𝐒𝐓 𝐀𝐍𝐃 𝐖𝐑𝐈𝐓𝐄𝐑 𓏻 }$ $\texttt{\color{#671f5a} 𝐌𝐔𝐋𝐓𝐈𝐅𝐀𝐍𝐃𝐎𝐌 (˶ᵔ ᵕ ᵔ˶)}$ 
-<br> $\texttt{\color{#db0035} 𝐈 𝐁𝐋𝐎𝐂𝐊 𝐀𝐍𝐃 𝐇𝐈𝐃𝐄 𝐅𝐑𝐄𝐄𝐋𝐘. 𝐓𝐀𝐊𝐄 𝐀𝐒 𝐌𝐔𝐂𝐇 𝐃𝐈𝐒𝐑𝐄𝐒𝐏𝐄𝐂𝐓 𝐀𝐒 𝐘𝐎𝐔 𝐖𝐀𝐍𝐓 ❤︎ }$  </p>
+<br> $\texttt{\color{#db0035} 𝐈 𝐁𝐋𝐎𝐂𝐊 𝐀𝐍𝐃 𝐇𝐈𝐃𝐄 𝐅𝐑𝐄𝐄𝐋𝐘. 𝐓𝐀𝐊𝐄 𝐀𝐒 𝐌𝐔𝐂𝐇 𝐃𝐈𝐒𝐑𝐄𝐒𝐏𝐄𝐂𝐓 𝐀𝐒 𝐘𝐎𝐔 𝐖𝐀𝐍𝐓 ❤︎ }$ 
+<br>$\texttt{\color{#872866}𝐀𝐑𝐓 𝐂𝐑𝐄𝐃𝐈𝐓𝐒}$ https://x.com/elesketchii, https://x.com/nitrogensolar, https://x.com/veecham_mmo ! </p>
 <br>
 <details><summary>$\color{#c099a8}{\textsf{𝘉𝘌𝘍𝘖𝘙𝘌 𝘠𝘖𝘜 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛 }}$</summary>
   <br> $\texttt{\color{#872866}𝘐 𝘚𝘈𝘠 𝘚𝘓𝘜𝘙𝘚 𝘐 𝘊𝘈𝘕 𝘙𝘌𝘊𝘓𝘈𝘐𝘔}$ 
