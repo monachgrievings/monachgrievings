@@ -122,7 +122,7 @@ $${\color{#8b1111} Lord X-⬇ }$$
 
 
   
-[<img width="270" height="270" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901090049.png" />](https://dellulification.straw.page/)       [<img width="270" height="270" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901090728.png" />](https://monachgrievings.atabook.org//)        [<img width="270" height="270" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901091257.png" />](https://x.com/ROTTEDFACADE/) 
+[<img width="270" height="270" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901090049.png" />](https://dellulification.straw.page/)       [<img width="270" height="270" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901090728.png" />](https://monachgrievings.atabook.org/)        [<img width="270" height="270" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901091257.png" />](https://x.com/ROTTEDFACADE/) 
 
 
 <p div align="center">
