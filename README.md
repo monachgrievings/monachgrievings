@@ -75,4 +75,8 @@ ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the 
 [<img width="270" height="270" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901090049.png" />](https://dellulification.straw.page/)       [<img width="270" height="270" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901090728.png" />](https://monachgrievings.atabook.org//)        [<img width="270" height="270" alt="Untitled748" src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled132_20260901091257.png" />](https://x.com/ROTTEDFACADE/) 
 
 
+<p div align="center">
+  <img src="https://file.garden/Z75MHo7PbGBcqHFG/Untitled131_20260901085143.png"style="width: 100; height: auto;" />
+</p>
+
 
