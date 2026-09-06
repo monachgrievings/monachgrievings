@@ -63,7 +63,7 @@ ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the 
  <br>
   ${\textsf{\color{#FF0000} ❗️Mandela catalog/Piggy roblox supporters/skins}}$<br>
    ${\textsf{\color{#FF0000} It's gross seeing fans completely defend the multimillionaires despite seeing the allegations of }}$<br>
- ${\textsf{\color{#FF0000} grooming and predatory behavior. especially knowing these projects were used in gross ways. }$<br>
+ ${\textsf{\color{#FF0000} grooming and predatory behavior. especially knowing these projects were used in gross ways.}}$<br>
 <br>
  <br>
  ${\textsf{\color{#FF0000} ❗️ Guts and Blackpowder= Homophobic and misogynistic team. One of their devs released a now deleted}}$<br>
