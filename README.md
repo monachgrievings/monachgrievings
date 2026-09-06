@@ -25,7 +25,8 @@ $\texttt{\color{#c099a8}𝐌𝐨𝐧𝐚𝐜𝐡 𓏻 𝐆𝐫𝐢𝐞𝐭𝐡 �
       ${\textsf{\color{#FF0000} Darkshippers, Radqueers/transmeds, TERFS/radical exclusionists, Russians (from ALOT of experiences), }}$<br>
       ${\textsf{\color{#FF0000} Boundary breakers of any sorts, ex friends, if you make nsfw jokes in public on the safe servers.}}$<br>
           ${\textsf{\color{#FF0000} rape/sexual assault, grooming or abuse jokes around me.}}$<br>
-    ${\textsf{\color{#FF0000} basic criteria (Racist, Facists, Anti-LGBTQIA+ (including exclusionists of microlabels n such) supporters of selfharm/harmful topics}}$<br>
+              ${\textsf{\color{#FF0000} Old friends and any of their associates}}$<br>
+${\textsf{\color{#FF0000} basic criteria (Racist, Facists, Anti-LGBTQIA+ (including exclusionists of microlabels n such) supporters of anti-recovery}}$<br>
 
 <br>
    ${\textsf{\color{#FF0000} ❗️Roblox myth supporters/skins = a community built apon taking inspiration}}$<br>
@@ -53,7 +54,7 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
 ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the development team,}}$<br>
  ${\textsf{\color{#FF0000} ex-owner is a weird MORON being funded by active players on the game,}}$<br>
  ${\textsf{\color{#FF0000} dangerous fan base also.(friends are excluded from this)}}$<br>
-  ${\textsf{\color{#FF0000} this will apply if you're actively playing the game or buying official merch.)}}$<br>
+  ${\textsf{\color{#FF0000} this will apply if you're actively playing the game or buying official merch.}}$<br>
 
  <br>
  <br>
