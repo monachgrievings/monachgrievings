@@ -53,6 +53,8 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
 ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the development team,}}$<br>
  ${\textsf{\color{#FF0000} ex-owner is a weird MORON being funded by active players on the game,}}$<br>
  ${\textsf{\color{#FF0000} dangerous fan base also.(friends are excluded from this)}}$<br>
+  ${\textsf{\color{#FF0000} this will apply if you're actively playing the game or buying official merch.)}}$<br>
+
  <br>
  <br>
  ${\textsf{\color{#FF0000} ❗️ doombyfate supporters= despite the seizure death being a hoax, how the team responded}}$<br>
@@ -69,7 +71,9 @@ ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the 
   <br>
     <br>
   ${\textsf{\color{#FF0000} ❗️Pressure supporters/skins= with the recent allegations against zeal and }}$<br>
-  ${\textsf{\color{#FF0000} harassment towards ren, I want nothing to do with pressure}}$<br>
+  ${\textsf{\color{#FF0000} harassment towards ren, I want nothing to do with pressure. I'll always support victims first.}}$<br>
+  ${\textsf{\color{#FF0000} even if ren's allegations are false, there is a bunch more of shitty things zeal has done}}$<br>
+  ${\textsf{\color{#FF0000} which were exposed fairly after ren spoke up about their own experiences.}}$<br>
   <br>
     <br>
  ${\textsf{\color{#E8C136} :knife:AI chatbot users/creators, non-sharing selfshippers}}$<br>
