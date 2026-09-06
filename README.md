@@ -55,11 +55,16 @@ ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the 
  ${\textsf{\color{#FF0000} ex-owner is a weird MORON being funded by active players on the game,}}$<br>
  ${\textsf{\color{#FF0000} dangerous fan base also.(friends are excluded from this)}}$<br>
   ${\textsf{\color{#FF0000} this will apply if you're actively playing the game or buying official merch.}}$<br>
-
  <br>
  <br>
  ${\textsf{\color{#FF0000} ❗️ doombyfate supporters= despite the seizure death being a hoax, how the team responded}}$<br>
  ${\textsf{\color{#FF0000} to someone's disability, mocking it, is disgusting.}}$<br>
+ <br>
+ <br>
+  ${\textsf{\color{#FF0000} ❗️Mandela catalog/Piggy roblox supporters/skins}}$<br>
+   ${\textsf{\color{#FF0000} It's gross seeing fans completely defend the multimillionaires despite seeing the allegations of }}$<br>
+ ${\textsf{\color{#FF0000} grooming and predatory behavior. especially knowing these projects were used in gross ways. }$<br>
+<br>
  <br>
  ${\textsf{\color{#FF0000} ❗️ Guts and Blackpowder= Homophobic and misogynistic team. One of their devs released a now deleted}}$<br>
  ${\textsf{\color{#FF0000} video of devs rein-acting the Palestine-Gaza bombing footage in unreleased map as a gag. }}$<br>
