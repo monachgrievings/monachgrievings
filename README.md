@@ -3,7 +3,7 @@
 </p>
 <img src=https://file.garden/Z75MHo7PbGBcqHFG/ezgif.com-gif-maker%202.gif aligh="left" width=57% 57%; height: auto;" //>
 <p align="right"> 
-$\texttt{\color{#c099a8}𝐌𝐨𝐧𝐚𝐜𝐡 𓏻 𝐆𝐫𝐢𝐞𝐭𝐡 𝟏𝟖 }$ $\texttt{\color{#872866} 𓏻 𝐈𝐓/𝐈𝐓𝐒𝐄𝐋𝐅 + 𝐍𝐎𝐍-𝐇𝐔𝐌𝐀𝐍 𝐓𝐄𝐑𝐌𝐒}$ $\texttt{\color{#671f5a}-𝟏𝟔+ 𝐃𝐍𝐈}$
+$\texttt{\color{#c099a8}𝐌𝐨𝐧𝐚𝐜𝐡 𓏻 𝐆𝐫𝐢𝐞𝐭𝐡 𝟏𝟖 }$ $\texttt{\color{#872866} 𓏻 𝐈𝐓/𝐈𝐓𝐒𝐄𝐋𝐅 + 𝐍𝐎𝐍-𝐇𝐔𝐌𝐀𝐍 𝐓𝐄𝐑𝐌𝐒}$ $\texttt{\color{#671f5a}𝐔𝐍𝐃𝐄𝐑 𝟏𝟔+ 𝐃𝐍𝐈}$
 <br> $\texttt{\color{#c099a8}𝐍𝐎 𝐎𝐍𝐄!! 𝐇𝐀𝐒 𝐏𝐄𝐑𝐌𝐈𝐒𝐒𝐈𝐎𝐍}$ $\texttt{\color{#872866}𝐓𝐎 𝐔𝐏𝐋𝐎𝐀𝐃 𝐌𝐘 𝐖𝐎𝐑𝐊 𝐀𝐍𝐘𝐖𝐇𝐄𝐑𝐄}$ $\texttt{\color{#671f5a}𝐎𝐍 𝐏𝐈𝐍𝐓𝐑𝐄𝐒𝐓 𝐎𝐑 𝐓𝐈𝐊𝐓𝐎𝐊.}$
 </p>
 <p>  $\texttt{\color{#671f5a} 𓏻 𝐈𝐍𝐒𝐏𝐈𝐑𝐀𝐓𝐈𝐎𝐍 𝐈𝐒 𝐀-𝐎𝐊𝐀𝐘! 𝐉𝐔𝐒𝐓 𝐃𝐎𝐍'𝐓 𝐅𝐋𝐀𝐓 𝐎𝐔𝐓 𝐂𝐎𝐏𝐘 𝐌𝐘 𝐖𝐎𝐑𝐊.}$ $\texttt{\color{#872866}𝐂+𝐇 𝐎𝐊𝐀𝐘 𝐔𝐍𝐋𝐄𝐒𝐒 𝐒𝐓𝐀𝐓𝐄𝐃 𝐈𝐍 𝐍𝐀𝐌𝐄!}$ $\texttt{\color{#c099a8}𝐒𝐔𝐏𝐄𝐑 𝐌𝐄𝐆𝐀 𝐖𝐎𝐊𝐄!}$  </p>
