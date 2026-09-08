@@ -108,7 +108,9 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>https://github.com/pt-walk-of-fame
 <br>https://github.com/ponytowncosplayers
 <br>https://github.com/pt-fashion
-<br>https://github.com/style-town</details>
+<br>https://github.com/style-town
+<br>$${\color{#8b1111} Sonic-⬇ }$$
+<br>https://github.com/pt-heavyfictkin</details>
 <details><summary>$\color{#872866}{\textsf{ㅤ           my artㅤ}}$</summary>
 <br> Formatted from Recent to Old work.
  <br> please scroll down cause this will be lenghty. QUICK THERES SPAMTENNA BELOW!!!
