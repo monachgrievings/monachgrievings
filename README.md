@@ -51,6 +51,14 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
      ${\textsf{\color{#FF0000} aside from the fact I have insider info on the development behind popular args (seildirectory especially) }}$<br>
      ${\textsf{\color{#FF0000} Most of the community/fans are shitty too. It's bad if a community collectively has to make}}$<br>
     ${\textsf{\color{#FF0000} posts about being normal and having online etiquette. Fuck off disrespectfully (CLOSE friends excluded) }}$<br>
+    <br>
+         ${\textsf{\color{#FF0000} ❗️TCC/True crime community (including skins) - majority of this community glorifies horrible incidents,}}$<br>
+            ${\textsf{\color{#FF0000} I personally think it is dangerous to indulge in this community especially if you're}}$<br>
+     ${\textsf{\color{#FF0000} mentally ill or younger than 18+ because of the dark topics overall.}}$<br>
+    <br>
+    ${\textsf{\color{#FF0000} ❗️Jeeper creeper fans - the creator of the movie is a pedophile. I don't want to see}}$<br>
+     ${\textsf{\color{#FF0000} anyone defending this when his projects are a creepy fantasy escapism.}}$<br>
+
 <br>
 ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the development team,}}$<br>
  ${\textsf{\color{#FF0000} ex-owner is a weird MORON being funded by active players on the game,}}$<br>
