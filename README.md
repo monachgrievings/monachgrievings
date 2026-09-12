@@ -110,6 +110,7 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>https://github.com/pt-nominations
 <br>https://github.com/character-town
 <br>https://github.com/cosplaytown
+<br> https://github.com/Ponytowns-rewards
 <br>$${\color{#8b1111} Lord X yumes-⬇ }$$
 <br>https://github.com/pt-medals2
 <br>$${\color{#8b1111} 2011x-⬇ }$$
@@ -118,7 +119,11 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>https://github.com/pt-fashion
 <br>https://github.com/style-town
 <br>$${\color{#8b1111} Sonic-⬇ }$$
-<br>https://github.com/pt-heavyfictkin</details>
+<br>https://github.com/pt-heavyfictkin
+<br>$${\color{#8b1111} The Spectre-⬇}$$
+<br> https://github.com/forsakentown
+<br>$${\color{#8b1111} Pretty githubs-⬇}$$
+<br> https://github.com/Ponytowns-rewards</details>
 <details><summary>$\color{#872866}{\textsf{ㅤ           my artㅤ}}$</summary>
 <br> Formatted from Recent to Old work.
  <br> please scroll down cause this will be lenghty. QUICK THERES SPAMTENNA BELOW!!!
