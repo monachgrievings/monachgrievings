@@ -115,6 +115,7 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br> https://github.com/Ponytowns-rewards
 <br>$${\color{#8b1111} Lord X yumes-⬇ }$$
 <br>https://github.com/pt-medals2
+<br> https://github.com/pt-icon
 <br>$${\color{#8b1111} 2011x-⬇ }$$
 <br>https://github.com/pt-walk-of-fame
 <br>https://github.com/ponytowncosplayers
