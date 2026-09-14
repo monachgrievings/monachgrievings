@@ -137,6 +137,7 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <details><summary>$\color{#872866}{\textsf{ㅤ           my artㅤ}}$</summary>
 <br> Formatted from Recent to Old work.
  <br> please scroll down cause this will be lenghty. QUICK THERES SPAMTENNA BELOW!!!
+  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2907.jpeg>
   <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2615.webp>
   <br> DO NOT USE, COMMISSION PIECE! ^
   <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2754.webp>
