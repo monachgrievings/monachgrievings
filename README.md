@@ -113,6 +113,7 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>https://github.com/character-town
 <br>https://github.com/cosplaytown
 <br> https://github.com/Ponytowns-rewards
+<br> https://github.com/pt-ship-nominations
 <br>$${\color{#8b1111} Lord X yumes-⬇ }$$
 <br>https://github.com/pt-medals2
 <br> https://github.com/pt-icon
@@ -123,6 +124,8 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>https://github.com/style-town
 <br>$${\color{#8b1111} Sonic-⬇ }$$
 <br>https://github.com/pt-heavyfictkin
+<br>$${\color{#8b1111} Pony towns platonic sonadow -⬇}$$
+<br> https://github.com/pt-ship-nominations
 <br>$${\color{#8b1111} The Spectre-⬇}$$
 <br> https://github.com/forsakentown
 <br>$${\color{#8b1111} Pretty githubs-⬇}$$
