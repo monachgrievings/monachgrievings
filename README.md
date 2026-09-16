@@ -151,6 +151,7 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>https://github.com/cosplaytown
 <br> https://github.com/Ponytowns-rewards
 <br> https://github.com/pt-ship-nominations
+<br> https://github.com/choco-town
 <br>$${\color{#8b1111} Lord X yumes-⬇ }$$
 <br>https://github.com/pt-medals2
 <br> https://github.com/pt-icon
