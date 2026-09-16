@@ -14,6 +14,40 @@ $\texttt{\color{#c099a8}𝐌𝐨𝐧𝐚𝐜𝐡 𓏻 𝐆𝐫𝐢𝐞𝐭𝐡 �
 <details><summary>$\color{#c099a8}{\textsf{MY LOVELY MOOTS!! }}$</summary>
 <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/image%20(3).webp> <img src=https://file.garden/Z75MHo7PbGBcqHFG/image%20(4).webp> <img src=https://file.garden/Z75MHo7PbGBcqHFG/image%20(5).webp> </details>
   <br>
+  <details><summary>$\color{#872866}{\textsf{ㅤ           my artㅤ}}$</summary>
+<br> Formatted from Recent to Old work.
+ <br> please scroll down cause this will be lenghty. QUICK THERES SPAMTENNA BELOW!!!
+  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2988.webp>
+  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2907.jpeg>
+  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2615.webp>
+  <br> DO NOT USE, COMMISSION PIECE! ^
+  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2754.webp>
+  <br> doodle of my sona + irl body lol ^
+  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2489.webp>
+  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2440.webp>
+ <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1991.png>
+<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1940.webp>
+<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1561.webp>
+ <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1692.webp>
+<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1523.webp>
+<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1111.webp>
+<br> YES I ACTUALLY DREW THAT
+ <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/theyre_so_me_theyre_so_me.webp>
+ <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_8583.webp>
+ <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/image%20(1).webp>
+ <br> Don't be weird to him, this is a friends sona i drew ^. 
+ <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_6716.webp>
+ <br> requested by a friend^ 
+<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/Untitled86_20260615221015.webp>
+<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/Untitled95_20260701222103.webp>
+<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_9764.webp>
+<br> My minecraft sona, it's a venus flytrip/praying mantis mix 
+<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/image.webp>
+<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_8851.jpeg>
+<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_4949.webp>
+<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/Screenshot%202026-08-24%20065317.png>
+<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_4849.webp> </details>
+<br>
 <details><summary>$\color{#c099a8}{\textsf{𝘉𝘌𝘍𝘖𝘙𝘌 𝘠𝘖𝘜 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛 }}$</summary>
   <br> $\texttt{\color{#872866}𝘐 𝘚𝘈𝘠 𝘚𝘓𝘜𝘙𝘚 𝘐 𝘊𝘈𝘕 𝘙𝘌𝘊𝘓𝘈𝘐𝘔}$ 
   <br> $\texttt{\color{#872866}𝘜𝘚𝘌 𝘛𝘖𝘕𝘌𝘛𝘈𝘎𝘚 𝘈𝘙𝘖𝘜𝘕𝘋 𝘔𝘌!}$
@@ -134,38 +168,8 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br> https://github.com/forsakentown
 <br>$${\color{#8b1111} Pretty githubs-⬇}$$
 <br> https://github.com/Ponytowns-rewards</details>
-<details><summary>$\color{#872866}{\textsf{ㅤ           my artㅤ}}$</summary>
-<br> Formatted from Recent to Old work.
- <br> please scroll down cause this will be lenghty. QUICK THERES SPAMTENNA BELOW!!!
-  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2907.jpeg>
-  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2615.webp>
-  <br> DO NOT USE, COMMISSION PIECE! ^
-  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2754.webp>
-  <br> doodle of my sona + irl body lol ^
-  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2489.webp>
-  <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_2440.webp>
- <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1991.png>
-<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1940.webp>
-<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1561.webp>
- <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1692.webp>
-<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1523.webp>
-<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_1111.webp>
-<br> YES I ACTUALLY DREW THAT
- <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/theyre_so_me_theyre_so_me.webp>
- <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_8583.webp>
- <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/image%20(1).webp>
- <br> Don't be weird to him, this is a friends sona i drew ^. 
- <br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_6716.webp>
- <br> requested by a friend^ 
-<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/Untitled86_20260615221015.webp>
-<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/Untitled95_20260701222103.webp>
-<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_9764.webp>
-<br> My minecraft sona, it's a venus flytrip/praying mantis mix 
-<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/image.webp>
-<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_8851.jpeg>
-<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_4949.webp>
-<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/Screenshot%202026-08-24%20065317.png>
-<br> <img src=https://file.garden/Z75MHo7PbGBcqHFG/IMG_4849.webp> </details>
+
+
 
 
 
