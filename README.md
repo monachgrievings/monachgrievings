@@ -103,7 +103,13 @@ ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the 
  ${\textsf{\color{#FF0000} ex-owner is a weird MORON being funded by active players on the game,}}$<br>
  ${\textsf{\color{#FF0000} dangerous fan base also.(friends are excluded from this)}}$<br>
   ${\textsf{\color{#FF0000} this will apply if you're actively playing the game or buying official merch.}}$<br>
- <br>
+  <br>
+  <br>
+   ${\textsf{\color{#FF0000} ❗️hazbin/helluva/viziepop supporters/skins}}$<br>
+  ${\textsf{\color{#FF0000} did not think I needed to plug this in but there is an entire playlist}}$<br>
+  https://www.youtube.com/playlist?list=PLaR9QprGh8_vYlVVq01-TB1SDtirG3-VW
+  ${\textsf{\color{#FF0000} dedicated to explaining controversy behind producers and the shows itself.}}$<br>
+  ${\textsf{\color{#FF0000} ive meet too many stubborn fans who instigate the hazbin dni out of pettiness, follow your own dni}}$<br>
  <br>
  ${\textsf{\color{#FF0000} ❗️ doombyfate supporters= despite the seizure death being a hoax, how the team responded}}$<br>
  ${\textsf{\color{#FF0000} to someone's disability, mocking it, is disgusting.}}$<br>
@@ -138,7 +144,6 @@ ${\textsf{\color{#FF0000} ❗️ Forsaken !!supporters!! = Controversy from the 
   <br>
     <br>
  ${\textsf{\color{#E8C136} :knife:AI chatbot users/creators, non-sharing selfshippers}}$<br>
- ${\textsf{\color{#E8C136} :knife:True crime community members, Hazbin/Helluva supporters}}$<br>
  ${\textsf{\color{#E8C136} :knife:TADC va supporters, miHoYo fans/supporters, whitewashers of any sort.}}$<br>
 </details>
 <details><summary>$\color{#671f5a}{\textsf{ㅤ             ㅤTitles / Awardsㅤ}}$</summary>
