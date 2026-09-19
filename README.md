@@ -175,8 +175,11 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br> https://github.com/pt-ship-nominations
 <br>$${\color{#8b1111} The Spectre-⬇}$$
 <br> https://github.com/forsakentown
+<br> https://github.com/pt-of-forsaken
 <br>$${\color{#8b1111} Pretty githubs-⬇}$$
-<br> https://github.com/Ponytowns-rewards</details>
+<br> https://github.com/Ponytowns-rewards
+<br>$${\color{#8b1111} luckyburger shipper -⬇}$$
+<br> https://github.com/pt-of-forsaken </details>
 
 
 
