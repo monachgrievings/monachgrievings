@@ -157,6 +157,7 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br> https://github.com/Ponytowns-rewards
 <br> https://github.com/pt-ship-nominations
 <br> https://github.com/choco-town
+<br> https://github.com/paw-town
 <br>$${\color{#8b1111} Lord X yumes-⬇ }$$
 <br>https://github.com/pt-medals2
 <br> https://github.com/pt-icon
@@ -165,6 +166,7 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>https://github.com/ponytowncosplayers
 <br>https://github.com/pt-fashion
 <br>https://github.com/style-town
+<br> https://github.com/paw-town 
 <br>$${\color{#8b1111} Sonic-⬇ }$$
 <br>https://github.com/pt-heavyfictkin
 <br> https://github.com/PT-FANtastic-Hall
