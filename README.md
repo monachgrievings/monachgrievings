@@ -12,7 +12,9 @@ $\texttt{\color{#c099a8}𝐌𝐨𝐧𝐚𝐜𝐡 𓏻 𝐆𝐫𝐢𝐞𝐭𝐡 �
 <br>$\texttt{\color{#872866}𝐀𝐑𝐓 𝐂𝐑𝐄𝐃𝐈𝐓𝐒}$ https://x.com/elesketchii, https://x.com/nitrogensolar, https://x.com/veecham_mmo 
   <details><summary>$\color{#f0cfe1}{\textsf{ 𖹭.ᐟ PONYTOWN BEST FRIENDS 𖹭.ᐟ }}$</summary>
 <br> https://github.com/SilentCriesOfDeath, https://github.com/SONNELLINOENTHUSIAST, https://github.com/rooielle 
-  <br> https://github.com/rrokia13, https://x.com/naenae_png, https://github.com/twixxeIlesgo, https://github.com/CosmeticStar </details> </p>
+  <br> https://github.com/rrokia13, https://x.com/naenae_png, https://github.com/twixxeIlesgo, https://github.com/CosmeticStar
+  <br> https://github.com/cpn-cook , https://github.com/foundingttn , https://github.com/greatzapfish 
+  <br> https://github.com/Tvoroo, https://github.com/DWN-Infinity , </details> </p>
   <details><summary>$\color{#db0035}{\textsf{(𝐑𝐄𝐀𝐃) 𝐃𝐎 𝐍𝐎𝐓 𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓!!}}$</summary>
     <br>
       ${\textsf{\color{#FF0000} Darkshippers, Radqueers/transmeds, TERFS/radical exclusionists, Russians (from ALOT of experiences), }}$<br>
