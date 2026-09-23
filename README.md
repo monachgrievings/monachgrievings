@@ -85,7 +85,10 @@ ${\textsf{\color{#FF0000}from predatory or dangerous individuals. keeping this l
     <br> https://mythcommunity.miraheze.org/wiki/Kazdam
     <br> https://mythcommunity.miraheze.org/wiki/The_Days_Union
     <br>https://mythcommunity.miraheze.org/wiki/Saint_Abida_Tribe 
-    <br>
+    <br> https://youtu.be/JdCFhM72QZs , https://youtu.be/xLX0n3f5Nf0 
+     ${\textsf{\color{#FF0000} ⬆ tubers93 video since theres no proper page stating the controversy. No you cannot separate art from artist when this is-}}$<br>
+          ${\textsf{\color{#FF0000} their persona and they NEVER apologized for anything.}}$<br>
+          <br>
     <br>
      ${\textsf{\color{#FF0000} ❗️Roblox ARGS = A community that arisen to take refugee away from the myth community yet-}}$<br>
      ${\textsf{\color{#FF0000} keeping around the same harmful individuals or inspiration from roblox myths}}$<br>
