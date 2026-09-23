@@ -175,13 +175,17 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br> https://github.com/PT-FANtastic-Hall
 <br>$${\color{#8b1111} Pony-towns-platonic-sonadow -⬇}$$
 <br> https://github.com/pt-ship-nominations
+<br> https://github.com/pt-friendships
 <br>$${\color{#8b1111} The Spectre-⬇}$$
 <br> https://github.com/forsakentown
 <br> https://github.com/pt-of-forsaken
-<br>$${\color{#8b1111} Pretty githubs-⬇}$$
+<br>$${\color{#8b1111} Pretty/Cool githubs-⬇}$$
 <br> https://github.com/Ponytowns-rewards
+<br> https://github.com/pt-fashion
 <br>$${\color{#8b1111} luckyburger shipper -⬇}$$
-<br> https://github.com/pt-of-forsaken </details>
+<br> https://github.com/pt-of-forsaken 
+<br>$${\color{#8b1111} Toes-GlassAnimals-AND-Wishes-Foolishpride⬇}$$
+<br> https://github.com/music-town </details>
 
 
 
