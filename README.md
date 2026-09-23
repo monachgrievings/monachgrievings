@@ -169,10 +169,11 @@ $${\color{#8b1111} Lord X-⬇ }$$
 <br>https://github.com/pt-fashion
 <br>https://github.com/style-town
 <br> https://github.com/paw-town 
+<br> https://github.com/kaotown
 <br>$${\color{#8b1111} Sonic-⬇ }$$
 <br>https://github.com/pt-heavyfictkin
 <br> https://github.com/PT-FANtastic-Hall
-<br>$${\color{#8b1111} Pony towns platonic sonadow -⬇}$$
+<br>$${\color{#8b1111} Pony-towns-platonic-sonadow -⬇}$$
 <br> https://github.com/pt-ship-nominations
 <br>$${\color{#8b1111} The Spectre-⬇}$$
 <br> https://github.com/forsakentown
